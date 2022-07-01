@@ -1231,7 +1231,7 @@
 	 - Comparisons:
 		 - [Boundary Of Emptiness: The Garden Of Sinners | Slowpoke Pics](https://slow.pics/c/mtlrVdye)
  ---
-  -  [[kara no
+  -  [[Kara no Kyoukai Movie 2 - Satsujin Kousatsu (Zen)]]
 	 - raw:  
 		 - [[ANE] Kara no Kyoukai [BDRip 1080p x264 FLAC] :: Nyaa](https://nyaa.si/view/264295)
 	 - sub:
@@ -1239,56 +1239,56 @@
 	 - Comparisons:
 		 - [Kara no Kyoukai 2: Satsujin Kousatsu (Zen) [BD 720-1080p] | Slowpoke Pics](https://slow.pics/c/fWUuaVgw)
  ---
-  -  
+  -  [[Kara no Kyoukai Movie 3 - Tsuukaku Zanryuu]]
 	 - raw:  
 		 - [[ANE] Kara no Kyoukai [BDRip 1080p x264 FLAC] :: Nyaa](https://nyaa.si/view/264295)
 	 - sub:
 		 - 
 
 ---
- -  
+ -  [[Kara no Kyoukai Movie 4 - Garan no Dou]]
 	 - raw:  
 		 - [[ANE] Kara no Kyoukai [BDRip 1080p x264 FLAC] :: Nyaa](https://nyaa.si/view/264295)
 	 - sub:
 		 - 
 
 ---
- -  
+ -  [[Kara no Kyoukai Movie 5 - Mujun Rasen]]
 	 - raw:  
 		 - [[ANE] Kara no Kyoukai [BDRip 1080p x264 FLAC] :: Nyaa](https://nyaa.si/view/264295)
 	 - sub:
 		 - 
 
 ---
- -  
+ -  [[Kara no Kyoukai Movie 6 - Boukyaku Rokuon]]
 	 - raw:  
 		 - [[ANE] Kara no Kyoukai [BDRip 1080p x264 FLAC] :: Nyaa](https://nyaa.si/view/264295)
 	 - sub:
 		 - 
 
 ---
- -  
+ -  [[Kara no Kyoukai Movie 7 - Satsujin Kousatsu (Go)]]
 	 - raw:  
 		 - [[ANE] Kara no Kyoukai [BDRip 1080p x264 FLAC] :: Nyaa](https://nyaa.si/view/264295)
 	 - sub:
 		 - 
 
 ---
- -  
+ -  [[Kara no Kyoukai Movie - Mirai Fukuin]]
 	 - raw:  
 		 - [[Arid] The Garden of Sinners - Future Gospel [BDRip 1920x1080 Hi10 FLAC] | Gekijouban Kara no Kyoukai - Mirai Fukuin :: Nyaa](https://nyaa.si/view/1400842)
 	 - sub:
 		 - 
 
 ---
- -  
+ -  [[Kara no Kyoukai Movie - Mirai Fukuin - Extra Chorus]]
 	 - raw:  
 		 - [[Alt] The Garden of Sinners - Future Gospel - Extra Chorus [BDRip 1080p Hi10 FLAC5.1].mkv (Kara no Kyoukai - Mirai Fukuin - Extra Chorus) :: Nyaa](https://nyaa.si/view/1400860)
 	 - sub:
 		 - 
 
 ---
- -  
+ -  [[Kotonoha no Niwa]]
 	 - raw:  
 		 - [[RAI] The Garden of Words [Dual-Audio][BDRip 1080p Hi10 FLAC] | Kotonoha no Niwa :: Nyaa](https://nyaa.si/view/1472824)
 		 - [[NSDAB] The Garden of Words [BD 1080p Opus] :: Nyaa](https://nyaa.si/view/1284227)
