@@ -1093,7 +1093,7 @@
 		 - 
 
 ---
- -  
+ -  [[Hibike! Euphonium Movie 1 - Kitauji Koukou Suisougaku-bu e Youkoso]]
 	 - raw:  
 		 - [[Arid] Sound! Euphonium the Movie - Welcome to the Kitauji High School Concert Band [BDRip 1920x1080 x264 FLAC] :: Nyaa](https://nyaa.si/view/1392806)
 	 - sub:
@@ -1107,14 +1107,14 @@
 		 - 
 
 ---
- -  
+ -  [[Hibike! Euphonium Movie 3 - Chikai no Finale]]
 	 - raw:  
 		 - [[FFF-Kantai] Hibike! Euphonium - Chikai no Finale [BD][1080p-FLAC][B63B76F9].mkv :: Nyaa](https://nyaa.si/view/1419832)
 	 - sub:
 		 - 
 
 ---
-  -  
+  -  [[Sen to Chihiro no Kamikakushi]]
 	 - raw:  
 		 - [[Arid] Spirited Away [Dual-Audio][BD 1920x1038 x264 FLAC] :: Nyaa](https://nyaa.si/view/1376904)
 	 - sub:
