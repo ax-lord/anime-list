@@ -1,0 +1,1518 @@
+ -  
+	 - raw:  
+		 - [[Arid] 5 Centimeters per Second [Dual-Audio][BDRip 1920x1080 Hi10 FLAC] | Byousoku 5 Centimeter](https://nyaa.si/view/1472870)
+	 - sub:
+		 - 
+
+---
+ -  
+	 - raw:  
+		 - [[YURI] A Certain Magical Index the Movie: The Miracle of Endymion (Toaru Majutsu no Index Movie: Endymion no Kiseki) (Dual Audio)[BD 1080p x264 FLAC] ](https://nyaa.si/view/1391379)
+	 - sub:
+		 - 
+
+---
+ -  
+	 - raw:  
+		 - [[Arid] A Letter to Momo [Dual-Audio][BDRip 1920x1080 x264 FLAC] | Momo e no Tegami](https://nyaa.si/view/1473153)
+	 - sub:
+		 - 
+	 - Comparisons:
+		 - [A Letter to Momo | Slowpoke Pics](https://slow.pics/c/RyD0d1el)
+ 
+ ---
+  -  
+	 - raw:  
+		 - [[Kametsu] A Silent Voice (BD 1080p HI10 FLAC) [Dual-Audio] :: Nyaa](https://nyaa.si/view/983165)
+		 - [[Arid] A Silent Voice v2 [Dual-Audio][BD 1920x1036 x264 FLAC DTS-HD MA] :: Nyaa](https://nyaa.si/view/1378894)
+	 - sub:
+		 - 
+	 - Comparisons:
+		 - [A Silent Voice | Slowpoke Pics](https://slow.pics/c/q7erUl0S)
+		 - [unknown | Slowpoke Pics](https://slow.pics/c/DIbTimRA)
+ ---
+  -  
+	 - raw:  
+		 - [[SOLA] Accel World: Infinite Burst (2016) - Movie (BD 1080p x264 Hi10P FLAC 5.1 Dual Audio) :: Nyaa](https://nyaa.si/view/1418121)
+	 - sub:
+		 - 
+
+---
+ -  
+	 - raw:  
+		 - [[Lulu] Akira [BD 1920x1032 x264 FLAC][Dual-Audio] :: Nyaa](https://nyaa.si/view/1463127)
+	 - sub:
+		 - 
+
+---
+ -  
+	 - raw:  
+		 - [[hydes] Tenshi No Tamago (Angel's Egg) JPBD Remux｜2xAudio/2xSub :: Nyaa](https://nyaa.si/view/1328570)
+	 - sub:
+		 - 
+	 - Comparisons:
+		 - [Tenshi No Tamago comparisons | Slowpoke Pics](https://slow.pics/c/pDHv4sFI)
+ ---
+ -  
+	 - raw:  
+		 - [[BBT-RMX] Waga Seishun no Arcadia (1982) | Arcadia of My Youth - Movie (BD 1080p x264 Hi10P FLAC) :: Nyaa](https://nyaa.si/view/1417621)
+	 - sub:
+		 - 
+
+---
+ -  
+	 - raw:  
+		 - [[Netaro] Asura [BD 1080p HEVC 5.1 FLAC] :: Nyaa](https://nyaa.si/view/1486125)
+	 - sub:
+		 - 
+
+---
+ -  
+	 - raw:  
+		 - [[Watashi]_Aura_-_Maryuuinkouga_Saigo_no_Tatakai_[BD][h264-1080p][FLAC][6CFEEA64].mkv :: Nyaa](https://nyaa.si/view/477163)
+	 - sub:
+		 - 
+
+---
+ -  
+	 - raw:  
+		 - [[Drag] Bayonetta - Bloody Fate (BD 1080p x264 10-bit FLAC) [Dual Audio] :: Nyaa](https://nyaa.si/view/1328827)
+	 - sub:
+		 - 
+
+---
+ -  
+	 - raw:  
+		 - [[Arid] Beyond the Boundary: I'll Be Here - Past [Dual-Audio][BDRip 1920x1080 Hi10 FLAC] | Kyoukai no Kanata - Kako-hen :: Nyaa](https://nyaa.si/view/1413069)
+	 - sub:
+		 - 
+
+---
+ -  
+	 - raw:  
+		 - [[Arid] Beyond the Boundary: I'll Be Here - Future [Dual-Audio][BDRip 1920x1080 Hi10 FLAC] | Kyoukai no Kanata - Mirai-hen :: Nyaa](https://nyaa.si/view/1412850)
+	 - sub:
+		 - 
+
+---
+ -  
+	 - raw:  
+		 - [[Beatrice-Raws] Big Fish & Begonia (2016) [BDRip 1920x804 HEVC DTS-HDMA] :: Nyaa](https://nyaa.si/view/1105820)
+	 - sub:
+		 - 
+
+---
+ -  
+	 - raw:  
+		 - [[SCY] Blood-C - The Last Dark (BD 1080p Hi10 FLAC) [Dual-Audio] :: Nyaa](https://nyaa.si/view/1054744)
+	 - sub:
+		 - 
+
+---
+ -  
+	 - raw:  
+		 - [[Beatrice-Raws] Bokura no Nanokakan Sensou (Seven Days War) [BDRip 1920x1080 HEVC FLAC] :: Nyaa](https://nyaa.si/view/1255094)
+	 - sub:
+		 - 
+
+---
+ -  
+	 - raw:  
+		 - [[Lulu] Boruto - Naruto the Movie [BDRip 1912x1036 x264 FLAC][Dual-Audio] :: Nyaa](https://nyaa.si/view/1457838)
+	 - sub:
+		 - 
+
+---
+ -  
+	 - raw:  
+		 - [[Lulu] Break Blade (Broken Blade) Movies [BD 1080p Hi10 FLAC][Dual-Audio] :: Nyaa](https://nyaa.si/view/1498421)
+	 - sub:
+		 - 
+
+---
+ -  
+	 - raw:  
+		 - [[VCB-Studio] Bungou Stray Dogs Dead Apple / 文豪ストレイドッグス DEAD APPLE 10-bit 1080p HEVC BDRip [Movie Fin] :: Nyaa](https://nyaa.si/view/1117391)
+	 - sub:
+		 - 
+
+---
+ -  
+	 - raw:  
+		 - [[Beatrice-Raws] Gekijouban Cardcaptor Sakura [BDRip 1920x1080 HEVC FLAC] :: Nyaa](https://nyaa.si/view/1106786)
+	 - sub:
+		 - 
+
+---
+ -  
+	 - raw:  
+		 - [[Beatrice-Raws] Gekijouban Cardcaptor Sakura - Fuuin Sareta Card [BDRip 1920x1080 HEVC FLAC] :: Nyaa](https://nyaa.si/view/1106831)
+	 - sub:
+		 - 
+
+---
+ -  
+	 - raw:  
+		 - [[hydes] Laputa: Castle in the Sky v2 [JPBD Remux][Dual-Audio]『Ghibli Project』 :: Nyaa](https://nyaa.si/view/1502230)
+	 - sub:
+		 - 
+	 - Comparisons:
+		 - [Laputa Castle in the Sky 2: Electric Boogaloo - THORA (Uses NCs) vs ZQ (Encode) vs JPN BD vs JPN MGVC BD vs USA Shout Factory BD vs USA BD | Slowpoke Pics](https://slow.pics/c/PrAd69yG)
+ ---
+  -  
+	 - raw:  
+		 - [[PAS] Cencoroll Connect (BD 1080p AAC) [17123C52].mkv :: Nyaa](https://nyaa.si/view/1257506)
+	 - sub:
+		 - 
+
+---
+ -  
+	 - raw:  
+		 - [[Kaizoku] Children of the Sea (BD 1080p AAC) [02C51EE9] (Kaijuu no Kodomo) :: Nyaa](https://nyaa.si/view/1348837)
+		 - [[Drag] Kaijuu no Kodomo v2 (BD 1080p x264 10-bit FLAC) [Dual Audio] | Children of the Sea :: Nyaa](https://nyaa.si/view/1366300)
+	 - sub:
+		 - 
+
+---
+ -  
+	 - raw:  
+		 - [Hoshi_wo_Ou_Kodomo_(2011)_[1080p,BluRay,DTS,x264]_-_THORA :: Nyaa](https://nyaa.si/view/927425)
+	 - sub:
+		 - 
+
+---
+ -  
+	 - raw:  
+		 - [[Saizen]_Chronus_-_Anime Mirai_2014_[v2][1080p][BD][F3CF020D].mkv :: Nyaa](https://nyaa.si/view/561195)
+	 - sub:
+		 - 
+
+---
+ -  
+	 - raw:  
+		 - [[Raws-Maji] Clannad Movie / 劇場版 クラナド [BDRip 1920x1080 HEVC AAC] :: Nyaa](https://nyaa.si/view/1359109)
+	 - sub:
+		 - 
+
+---
+ -  
+	 - raw:  
+		 - [[YURI] Code Geass Lelouch of the Resurrection (Code Geass Fukkatsu no Lelouch) (Dual Audio) [BD 1080p HEVC FLAC] :: Nyaa](https://nyaa.si/view/1379388)
+	 - sub:
+		 - 
+	 - Comparisons:
+		 - [Code Geass: Lelouch of the Re;surrection | Slowpoke Pics](https://slow.pics/c/M8HXTON6)
+ ---
+  -  
+	 - raw:  
+		 - [[YURI] Colorful (2010) [BD 1080p HEVC Flac][Dual Audio] v2 :: Nyaa](https://nyaa.si/view/1339083)
+	 - sub:
+		 - 
+
+---
+ -  
+	 - raw:  
+		 - [[Arid] Cowboy Bebop: The Movie - Knockin' on Heaven's Door v2 [Dual-Audio][BD 1916x1040 x264 FLAC] :: Nyaa](https://nyaa.si/view/1367795)
+	 - sub:
+		 - 
+	 - Comparisons:
+		 - [Cowboy Bebop The Movie - ITBD vs JPBD Full Comp | Slowpoke Pics](https://slow.pics/c/OVwXAIA8)
+ ---
+  -  
+	 - raw:  
+		 - [[Yoghurt] Date A Bullet [BD 1920x1080 x264 FLAC] :: Nyaa](https://nyaa.si/view/1391311)
+	 - sub:
+		 - 
+
+---
+ -  
+	 - raw:  
+		 - [[Yoghurt] Date a Live - Mayuri Judgement [BD 1920x1080 x264 FLAC] :: Nyaa](https://nyaa.si/view/1384094)
+	 - sub:
+		 - 
+
+---
+ -  
+	 - raw:  
+		 - [[Kulot] Dead Leaves [Dual-Audio][WEB-DL 1920x1080p x264 AAC AC3] :: Nyaa](https://nyaa.si/view/1402290)
+	 - sub:
+		 - 
+
+---
+ -  
+	 - raw:  
+		 - [[BKC] Death Billiards (2013) (BD 1080p x264 Hi10P FLAC) :: Nyaa](https://nyaa.si/view/1546960)
+	 - sub:
+		 - 
+
+---
+ -  
+	 - raw:  
+		 - [[TTGA] Demon Slayer -Kimetsu no Yaiba- The Movie: Mugen Train (2020) [HYBRID BDRemux] [1080p Dual Audio DTS-HD MA AVC] (Kimetsu no Yaiba Movie: Mugen Ressha-hen) :: Nyaa](https://nyaa.si/view/1468782)
+		 - [[Kaizoku] Demon Slayer - Infinity Train (BD 1080p AAC) [D9A651A7] (Kimetsu no Yaiba Movie: Mugen Ressha Hen) :: Nyaa](https://nyaa.si/view/1401812)
+		 - 
+	 - sub:
+		 - 
+	 - Comparisons:
+		 - [Demon Slayer - Infinity Train | Slowpoke Pics](https://slow.pics/c/bB6uxggs)
+ ---
+  -  
+	 - raw:  
+		 - [[ARC] Neon Genesis Evangelion - End of Evangelion (1997) [BD 1080p FLAC][Dual-Audio] :: Nyaa](https://nyaa.si/view/1337085)
+	 - sub:
+		 - 
+
+---
+ -  
+	 - raw:  
+		 - [[Baws] Evangelion 1.11: You Are (Not) Alone v2 (1080p BD HEVC FLAC) :: Nyaa](https://nyaa.si/view/1377771)
+	 - sub:
+		 - 
+
+---
+ -  
+	 - raw:  
+		 - [[Baws] Evangelion 2.22: You Can (Not) Advance (1080p BD HEVC FLAC) :: Nyaa](https://nyaa.si/view/1378305)
+	 - sub:
+		 - 
+
+---
+ -  
+	 - raw:  
+		 - [[Baws] Evangelion 3.33: You Can (Not) Redo (1080p BD HEVC FLAC) :: Nyaa](https://nyaa.si/view/1378251)
+	 - sub:
+		 - 
+
+---
+ -  
+	 - raw:  
+		 - [[Lulu] Rakuen Tsuihou - Expelled from Paradise [BD 1080p Hi10 FLAC][Dual-Audio] :: Nyaa](https://nyaa.si/view/1434528)
+	 - sub:
+		 - 
+	 - Comparisons:
+		 - [Expelled from Paradise | Slowpoke Pics](https://slow.pics/c/Y4c2TDIY)
+ ---
+  -  
+	 - raw:  
+		 - [[Arid] Fate kaleid liner Prisma☆Illya Prisma☆Phantasm [BD 1080p x264 FLAC] :: Nyaa](https://nyaa.si/view/1382548)
+		 - [[SNSbu] Fate kaleid liner Prisma☆Illya Prisma☆Phantasm (BD 1920x1080 AVC FLAC) :: Nyaa](https://nyaa.si/view/1222743)
+	 - sub:
+		 - 
+	 - Comparisons:
+		 - [illya movie | Slowpoke Pics](https://slow.pics/c/Zw5JfBDD)
+ ---
+  -  
+	 - raw:  
+		 - [[SneedSplit] Fate/stay night: Heaven's Feel I. - Presage Flower (BD 1080p Hi10 FLAC) [Dual-Audio] :: Nyaa](https://nyaa.si/view/1440459)
+	 - sub:
+		 - 
+	 - Comparisons:
+		 - [HF1 | Slowpoke Pics](https://slow.pics/c/oXLNCM6S)
+		 - [FHF 1 | Slowpoke Pics](https://slow.pics/c/OJWmGI5P)
+		 - [Fate Stay Night Heaven's Feel I. - Presage Flower | Slowpoke Pics](https://slow.pics/c/vXFOcJoQ)
+ ---
+  -  
+	 - raw:  
+		 - [[Kaleido-SCY] Fate Stay Night Heaven's Feel (BD 1080p Hi10 FLAC) [Dual-Audio] :: Nyaa](https://nyaa.si/view/1391529)
+	 - sub:
+		 - 
+	 - Comparisons:
+		 - [unknown | Slowpoke Pics](https://slow.pics/c/0IR9UBFD)
+ ---
+  -  
+	 - raw:  
+		 - [[Kaleido-SCY] Fate Stay Night Heaven's Feel (BD 1080p Hi10 FLAC) [Dual-Audio] :: Nyaa](https://nyaa.si/view/1391529)
+	 - sub:
+		 - 
+	 - Comparisons:
+		 - [HF3 | Slowpoke Pics](https://slow.pics/c/GzejDyUq)
+ ---
+  -  
+	 - raw:  
+		 - [[YURI] Uchiage Hanabi, Shita kara Miru ka Yoko kara Miru ka (Fireworks, Should We See It from the Side or the Bottom?) (Dual Audio) [BD 1080p x264 10bit FLAC] :: Nyaa](https://nyaa.si/view/1383047)
+	 - sub:
+		 - 
+
+---
+ -  
+	 - raw:  
+		 - [[Commie] Free! Take Your Marks [BD 1080p AAC] :: Nyaa](https://nyaa.si/view/1111459)
+	 - sub:
+		 - 
+
+--- -  
+ -  
+	 - raw:  
+		 - [From_Up_On_Poppy_Hill_(2011)_[1080p,BluRay,flac,x264]_-_THORA :: Nyaa](https://nyaa.si/view/928789)
+	 - sub:
+		 - 
+	 - Comparisons:
+		 - [From Up on Poppy Hill - THORA vs JPN BD (Studio Ghibli) vs USA BD (GKIDS) | Slowpoke Pics](https://slow.pics/c/AZTrKEZv)
+ ---
+  -  
+	 - raw:  
+		 - [[Arid] Fullmetal Alchemist: The Sacred Star of Milos [Dual-Audio][JPBD Remux] | Hagane no Renkinjutsushi: Milos no Seinaru Hoshi :: Nyaa](https://nyaa.si/view/1447344)
+	 - sub:
+		 - 
+	 - Comparisons:
+		 - [milos | Slowpoke Pics](https://slow.pics/c/5hXuoTUx)
+ ---
+  -  
+	 - raw:  
+		 - [[Kulot] Garo - Divine Flame [Dual-Audio][BDRip 1920x816 x264 AC3 FLAC] :: Nyaa](https://nyaa.si/view/1393687)
+	 - sub:
+		 - 
+
+---
+ -  
+	 - raw:  
+		 - [[Kametsu] Ghost in the Shell - The New Movie (2015) v2 (BD 1080p Hi10 FLAC) [Dual-Audio] :: Nyaa](https://nyaa.si/view/873294)
+	 - sub:
+		 - 
+	 - Comparisons:
+		 - [GITS New Movie | Slowpoke Pics](https://slow.pics/c/bFx6zXuc)
+ ---
+  -  
+	 - raw:  
+		 - [[hydes] Ghost In The Shell 2: Innocence [ITBD Remux][Dual-Audio] + OST :: Nyaa](https://nyaa.si/view/1338669)
+	 - sub:
+		 - 
+	 - Comparisons:
+		 - [Innocence | Slowpoke Pics](https://slow.pics/c/2a4p6WDH)
+		 - [Judgment - Comparison Index - Koukaku Kidoutai 2 - Innocence - 1080p-1](http://comp.judging.it/index.php?seriesid=Koukaku%20Kidoutai%202%20-%20Innocence&comparisonid=1080p-1)
+		 - [GITS Innocence | Slowpoke Pics](https://slow.pics/c/7p4G0TWA)
+ ---
+  -  
+	 - raw:  
+		 - [[Beatrice-Raws] Ghost in the Shell 2.0 [BDRip 1920x1080 x264 FLAC]rev :: Nyaa](https://nyaa.si/view/899112)
+	 - sub:
+		 - 
+
+---
+ -  
+	 - raw:  
+		 - [Gekijouban Gintama: Shinyaku Benizakura Hen (BD 1080p) [Judgment] :: Nyaa](https://nyaa.si/view/793128)
+	 - sub:
+		 - 
+	 - Comparisons:
+		 - [Gintama Benizakura | Slowpoke Pics](https://slow.pics/c/45ZITyVg)
+ ---
+  -  
+	 - raw:  
+		 - [[Selene] Gintama Movie 2: Kanketsu-hen - Yorozuya yo Eien Nare [BD 1080p FLAC] | Gintama: The Final Chapter - Be Forever Yorozuya :: Nyaa](https://nyaa.si/view/1393869)
+	 - sub:
+		 - 
+	 - Comparisons:
+		 - [gintama | Slowpoke Pics](https://slow.pics/c/UcJc2iZD)
+ ---
+  -  
+	 - raw:  
+		 - [[Noyr] Gintama THE FINAL (BDRip 1920x1080 x264 10bit FLAC) :: Nyaa](https://nyaa.si/view/1448284)
+	 - sub:
+		 - 
+
+---
+ -  
+	 - raw:  
+		 - [Girls.und.Panzer.der.Film.S00E37.1080p-Hi10p.BluRay.FLAC5.1.x264-CTR.[4A03B7CB].mkv (English Dual Audio) :: Nyaa](https://nyaa.si/view/919675)
+	 - sub:
+		 - 
+
+---
+ -  
+	 - raw:  
+		 - [[Lulu] Goblin Slayer: Goblin's Crown [BD 1080p FLAC][Dual-Audio] :: Nyaa](https://nyaa.si/view/1397576)
+	 - sub:
+		 - 
+
+---
+ -  
+	 - raw:  
+		 - [[Kametsu] Grave of the Fireflies v2 [Blu-Ray][1080p][10bit][FLAC] :: Nyaa](https://nyaa.si/view/1154162)
+	 - sub:
+		 - 
+	 - Comparisons:
+		 - [Grave of the Fireflies - Kametsu v2 vs REVO (no b frames) vs D-Z0N3 vs CtrlHD vs JPN BD/MGVC JPN BD | Slowpoke Pics](https://slow.pics/c/8F7UQ9nn)
+ ---
+  -  
+	 - raw:  
+		 - [[Orphan] Gude Crest (LD) :: Nyaa](https://nyaa.si/view/1369668)
+	 - sub:
+		 - 
+
+---
+ -  
+	 - raw:  
+		 - [[YURI] Hanasaku Iroha - Home Sweet Home (2013) [BD 1080p x264 10bit Flac] :: Nyaa](https://nyaa.si/view/1340600)
+	 - sub:
+		 - 
+
+---
+ -  
+	 - raw:  
+		 - [[Commie] Happy-Go-Lucky Days [BD 1080p AAC] [E0AA62AA].mkv :: Nyaa](https://nyaa.si/view/1379377)
+	 - sub:
+		 - 
+
+---
+ -  
+	 - raw:  
+		 - [[YURI] Harmonie [BD 1080p x264 10bit FLAC] :: Nyaa](https://nyaa.si/view/1382769)
+	 - sub:
+		 - 
+
+---
+ -  
+	 - raw:  
+		 - [[BAD] Harmony [Dual-Audio][BDRip 1920x1080 Hi10 FLAC] :: Nyaa](https://nyaa.si/view/1409847)
+	 - sub:
+		 - 
+
+---
+ -  
+	 - raw:  
+		 - [[Orphan] Hashire! Shiroi Ookami (VHS) :: Nyaa](https://nyaa.si/view/1381930)
+	 - sub:
+		 - 
+
+---
+ -  
+	 - raw:  
+		 - [[Pookie] Hello World [BD 1920x1080 HEVC TrueHD-FLAC] :: Nyaa](https://nyaa.si/view/1386551)
+	 - sub:
+		 - 
+	 - Comparisons:
+		  - [Hello World | Slowpoke Pics](https://slow.pics/c/8d2FlPSh)
+---
+ -  
+	 - raw:  
+		 - [[Saizen]_Hells_[1080p][Blu-Ray][3CC4E835].mkv :: Nyaa](https://nyaa.si/view/768876)
+		 - [[LazyMux] Hells (BD 1080p Hi10 FLAC) [Dual-Audio] :: Nyaa](https://nyaa.si/view/1122212)
+	 - sub:
+		 - 
+
+---
+ -  
+	 - raw:  
+		 - [[Arid] Her Blue Sky [BDRip 1080p x264 FLAC] :: Nyaa](https://nyaa.si/view/1388521)
+		 - [[Kaizoku] Her Blue Sky (BD 1080p AAC) [D2289DFA] (Sora no Aosa wo Shiru Hito yo) :: Nyaa](https://nyaa.si/view/1255450)
+	 - sub:
+		 - 
+	 - Comparisons:
+		 - [Her Blue Sky | Slowpoke Pics](https://slow.pics/c/MjPI3njy)
+ ---
+  -  
+	 - raw:  
+		 - [[Commie] High Speed! Free! Starting Days [BD 1080p AAC] [C8494244].mkv :: Nyaa](https://nyaa.si/view/1106459)
+	 - sub:
+		 - 
+
+---
+ -  
+	 - raw:  
+		 - [Hotarubi no Mori e | Into the Forest of Fireflies' Light | 蛍火の杜へ [BDRip 1920x1080 x264 FLAC] [Exp] :: Nyaa](https://nyaa.si/view/1337139)
+	 - sub:
+		 - 
+	 - Comparisons:
+		 - [hotarubi | Slowpoke Pics](https://slow.pics/c/2diFUQ0p)
+ ---
+ -  
+	 - raw:  
+		 - [Howl's Moving Castle 2004 BluRay Remux 1080p AVC DTS-HD MA 5.1 - HiFi :: Nyaa](https://nyaa.si/view/1423361)
+	 - sub:
+		 - 
+	 - Comparisons:
+		 - [Howl's Moving Castle REVO vs EbP vs HiFi | Slowpoke Pics](https://slow.pics/c/bLUBvgWk)
+		 - [Howl's Moving Castle II: Attack of the Clones - REVO vs THORA v2 vs EbP vs JPN BD vs Shout Factory USA BD vs Disney USA BD (no b frames) | Slowpoke Pics](https://slow.pics/c/H1PnYptd)
+ ---
+  -  
+	 - raw:  
+		 - [[Arid] I Want to Eat Your Pancreas [Dual-Audio][BDRip 1080p HEVC OPUS] :: Nyaa](https://nyaa.si/view/1546186)
+	 - sub:
+		 - 
+
+---
+ -  
+	 - raw:  
+		 - [[Kulot] Zutto Mae kara Suki deshita. Kokuhaku Jikkou Iinkai | I've Always Liked You [BDRip 1920x1080 x264 FLAC] :: Nyaa](https://nyaa.si/view/1391375)
+	 - sub:
+		 - 
+	 - Comparisons:
+		 - [Zutto Mae kara Suki Deshita. Kokuhaku Jikkou Iinkai | Slowpoke Pics](https://slow.pics/c/aXnI362s)
+ ---
+  -  
+	 - raw:  
+		 - [[SCY] In This Corner of the World (BD 1080p Hi10 FLAC) [Dual-Audio] :: Nyaa](https://nyaa.si/view/984322)
+	 - sub:
+		 - 
+
+---
+ -  
+	 - raw:  
+		 - [[Lulu] Is It Wrong to Try to Pick Up Girls in a Dungeon - Arrow of the Orion [BDRip 1920x1080 HEVC FLAC][Dual-Audio] :: Nyaa](https://nyaa.si/view/1401099)
+	 - sub:
+		 - 
+
+---
+ -  
+	 - raw:  
+		 - [[Kantai] K-ON! Movie (1920x1080 AAC) [61D3C37E].mkv :: Nyaa](https://nyaa.si/view/891123)
+	 - sub:
+		 - 
+
+---
+ -  
+	 - raw:  
+		 - [[SCY] Kabaneri of the Iron Fortress: The Battle of Unato (BD 1080p Hi10 FLAC) [Dual-Audio] :: Nyaa](https://nyaa.si/view/1283147)
+	 - sub:
+		 - 
+
+---
+ -  
+	 - raw:  
+		 - [[Commie] Kick-Heart [BD 1080p AAC] [281B3EE9].mkv :: Nyaa](https://nyaa.si/view/465791)
+	 - sub:
+		 - 
+
+---
+ -  
+	 - raw:  
+		 - [[REVO]Kiki's Delivery Service[1080p,FLAC] [5A329906].mkv :: Nyaa](https://nyaa.si/view/588431)
+	 - sub:
+		 - 
+	 - Comparisons:
+		 - [Kiki's Delivery Service v2 - REVO vs THORA vs ZQ vs JPN BD vs JPN MGVC BD vs Disney USA BD | Slowpoke Pics](https://slow.pics/c/vyFvpZNA)
+ ---
+  -  
+	 - raw:  
+		 - [[Drag] Kiniro Mosaic - Pretty Days (BD 1080p x265 10-bit FLAC) :: Nyaa](https://nyaa.si/view/1364096)
+	 - sub:
+		 - 
+
+---
+ -  
+	 - raw:  
+		 - [[MTBB] Kizumonogatari - 01 (BD 1080p) :: Nyaa](https://nyaa.si/view/1446994)
+		 - [[Lulu] Kizumonogatari [BDRip 1920x816 HEVC FLAC] :: Nyaa](https://nyaa.si/view/1453813)
+	 - sub:
+		 - 
+
+---
+ -  
+	 - raw:  
+		 - [[MTBB] Kizumonogatari - 02 (BD 1080p) :: Nyaa](https://nyaa.si/view/1447481)
+		 - [[Lulu] Kizumonogatari [BDRip 1920x816 HEVC FLAC] :: Nyaa](https://nyaa.si/view/1453813)
+	 - sub:
+		 - 
+
+---
+ -  
+	 - raw:  
+		 - [[MTBB] Kizumonogatari - 03 (BD 1080p) :: Nyaa](https://nyaa.si/view/1447920)
+		 - [[Lulu] Kizumonogatari [BDRip 1920x816 HEVC FLAC] :: Nyaa](https://nyaa.si/view/1453813)
+	 - sub:
+		 - 
+
+---
+ -  
+	 - raw:  
+		 - [[Pog42] KonoSuba Seasons 1-2 + OVAs + Movie(Kurenai Densetsu|Legend of Crimson) | Kono Subarashii Sekai ni Shukufuku wo! (BD 1080p HEVC x265 10-bit Opus) :: Nyaa](https://nyaa.si/view/1331497)
+	 - sub:
+		 - 
+	 - Comparisons:
+		 - [konosuba movie | Slowpoke Pics](https://slow.pics/c/9NujIPzB)
+ ---
+  -  
+	 - raw:  
+		 - [[Ayashii] Kud Wafter [BD 1080p HEVC FLAC 5.1] (Multi-Subs) :: Nyaa](https://nyaa.si/view/1328604)
+		 - [[Kaleido-subs] Kud Wafter (BD 1080p) [9E56D178] :: Nyaa](https://nyaa.si/view/1326641)
+	 - sub:
+		 - 
+	 - Comparisons:
+		 - [kud | Slowpoke Pics](https://slow.pics/c/NeRN34IF)
+ ---
+  -  
+	 - raw:  
+		 - [[Drag] Toshokan Sensou꞉ Kakumei no Tsubasa (BD 1080p x264 10-bit FLAC) | Library War: The Wings of Revolution :: Nyaa](https://nyaa.si/view/1342753)
+	 - sub:
+		 - 
+
+---
+ -  
+	 - raw:  
+		 - [[Beatrice] Choujin Locke [BDRip 1920x1038 HEVC FLAC].mkv :: Nyaa](https://nyaa.si/view/1106963)
+	 - sub:
+		 - 
+
+---
+ -  
+	 - raw:  
+		 - [[Beatrice-Raws] Omoi, Omoware, Furi, Furare [BDRip 1920x1080 HEVC DTSHD] :: Nyaa](https://nyaa.si/view/1382051)
+	 - sub:
+		 - 
+
+---
+ -  
+	 - raw:  
+		 - [[MK] Love, Chunibyo & Other Delusions! Rikka Version (Takanashi Rikka Kai: Gekijouban Chuunibyou demo Koi ga Shitai!) [BD 1080p][Hi10][Dual-Audio] :: Nyaa](https://nyaa.si/view/963576)
+	 - sub:
+		 - 
+
+---
+ -  
+	 - raw:  
+		 - [[YURI] Love, Chunibyo & Other Delusions! The Movie - Take on Me | Chuunibyou demo Koi ga Shitai Take On Me [BD 1080p x264 FLAC][Dual-Audio] :: Nyaa](https://nyaa.si/view/1411505)
+	 - sub:
+		 - 
+
+---
+ -  
+	 - raw:  
+		 - [[MTBB] Lu Over the Wall – Yoake Tsugeru Lu no Uta (BD 1080p) :: Nyaa](https://nyaa.si/view/1095893)
+	 - sub:
+		 - 
+	 - Comparisons:
+		 - [Lu Over The Wall | Slowpoke Pics](https://slow.pics/c/pcZOJNuw)
+ ---
+  -  
+	 - raw:  
+		 - [[Arid] Made in Abyss - Dawn of the Deep Soul [Dual-Audio][BD 1080p x264 FLAC] | Fukaki Tamashii no Reimei :: Nyaa](https://nyaa.si/view/1387784)
+	 - sub:
+		 - 
+	 - Comparisons:
+		 - [Made in Abyss - Beatrice-Raws vs HyD vs JPN BD vs ITA BD | Slowpoke Pics](https://slow.pics/c/OcAC4Vsg)
+ ---
+  -  
+	 - raw:  
+		 - [[Hark0n] Mai Mai Shinko to Sennen no Mahou | Mai-Mai Miracle (2009) - Movie (BD 1080p x264 Hi10P FLAC Dual Audio) :: Nyaa](https://nyaa.si/view/1417705)
+	 - sub:
+		 - 
+
+---
+ -  
+	 - raw:  
+		 - [[Aergia] Maquia - When the Promised Flower Blooms [BDRemux 1080p FLAC] (Dual-Audio) :: Nyaa](https://nyaa.si/view/1514886)
+	 - sub:
+		 - 
+
+---
+ -  
+	 - raw:  
+		 - [[Aergia] Maquia - When the Promised Flower Blooms [BDRemux 1080p FLAC] (Dual-Audio) :: Nyaa](https://nyaa.si/view/1514886)
+	 - sub:
+		 - 
+	 - Comparisons:
+		 - 
+ ---
+  -  
+	 - raw:  
+		 - [Metropolis (BD 720p) [Afro] (revised) :: Nyaa](https://nyaa.si/view/468531)
+	 - sub:
+		 - 
+
+---
+ -  
+	 - raw:  
+		 - [[Arid] Millennium Actress [Dual-Audio][BDRip 1920x1036 x264 Hi10P FLAC] :: Nyaa](https://nyaa.si/view/1381676)
+	 - sub:
+		 - 
+	 - Comparisons:
+		 - [Millennium | Slowpoke Pics](https://slow.pics/c/Vr4yJLqs)
+ ---
+  -  
+	 - raw:  
+		 - [[Arid] Mind Game [BDRip 1916x816 x264 FLAC] :: Nyaa](https://nyaa.si/view/1389004)
+	 - sub:
+		 - 
+	 - Comparisons:
+		 - [unknown | Slowpoke Pics](https://slow.pics/c/a0uzEcHt)
+ ---
+ -  
+	 - raw:  
+		 - [[Arid] Mirai [Dual-Audio][BDRip 1920x1038 HEVC FLAC] :: Nyaa](https://nyaa.si/view/1386296)
+	 - sub:
+		 - 
+
+---
+ -  
+	 - raw:  
+		 - [[Arid] Miss Hokusai [Dual-Audio][BDRip 1920x1080 HEVC FLAC] | Sarusuberi :: Nyaa](https://nyaa.si/view/1444431)
+	 - sub:
+		 - 
+
+---
+ -  
+	 - raw:  
+		 - [Miyori no Mori Movie (2007)(BD 1080p H264 DTS+AC3) :: Nyaa](https://nyaa.si/view/1121061)
+	 - sub:
+		 - 
+
+---
+ -  
+	 - raw:  
+		 - [[ARC] Mushishi Zoku Shou + Specials (2014) [BD 1080p FLAC] :: Nyaa](https://nyaa.si/view/1364997)
+	 - sub:
+		 - 
+
+---
+ -  
+	 - raw:  
+		 - [[Galator] My Hero Academia - Movie 01 - Two Heroes (BD 1080p x264 10-bit FLAC) [Dual-Audio] (Boku no Hero Academia: Futari no Hero) :: Nyaa](https://nyaa.si/view/1142603)
+		 - [[neko-kBaraka] Boku no Hero Academia the Movie - Two Heroes [BD][1080p][FLAC] [2AAAEAF9].mkv :: Nyaa](https://nyaa.si/view/1134646)
+	 - sub:
+		 - 
+	 - Comparisons:
+		 - [My Hero Academia Two Heroes (movie 1) | Slowpoke Pics](https://slow.pics/c/28QXWtTn)
+ ---
+  -  
+	 - raw:  
+		 - [[UDF] My Neighbor Totoro (Streamline & Disney) (BDRip 1080p x264) [dual-audio] [32AD9BE6] :: Nyaa](https://nyaa.si/view/1354334)
+	 - sub:
+		 - 
+	 - Comparisons:
+		 - [My Neighbor Totoro - THORA v2 (Uses NCs) vs REVO vs JPN BD (Studio Ghibli Collection) vs JPN MGVC BD vs USA Disney BD (Has no b frames) | Slowpoke Pics](https://slow.pics/c/hccZLgSV)
+ ---
+  -  
+	 - raw:  
+		 - [[CyC] Natsume Yuujinchou Movie - Utsusemi ni Musubu (BD 1080p Hi10 x264 FLAC) :: Nyaa](https://nyaa.si/view/1204457)
+	 - sub:
+		 - 
+
+---
+ -  
+	 - raw:  
+		 - [[hydes] Nausicaa / Nausicaä of the Valley of the Wind (1984) v2 [2014 JPBD Remux][Dual-Audio]『Ghibli Project』 :: Nyaa](https://nyaa.si/view/1425023)
+		 - [[Arid] Nausicaa of the Valley of the Wind [Dual-Audio][BD 1920x1038 x264 FLAC] :: Nyaa](https://nyaa.si/view/1373590)
+	 - sub:
+		 - 
+	 - Comparisons:
+		 - [Nausicaä of the Valley of the Wind - REVO (Old) vs REVO (New) vs THORA vs JPN BD vs MGVC JPN BD VS Optimum/Studio Canal GBR BD vs Shout Factory USA BD vs Disney USA BD | Slowpoke Pics](https://slow.pics/c/jJ5uYNPo)
+ ---
+  -  
+	 - raw:  
+		 - [[Omotenashi] Ninja Scroll [1460x1080 HEVC FLAC].mkv :: Nyaa](https://nyaa.si/view/1264091)
+	 - sub:
+		 - 
+
+---
+ -  
+	 - raw:  
+		 - [[YURI] No Game No Life Zero (Dual Audio)[BD 1080p x264 10bits Flac] :: Nyaa](https://nyaa.si/view/1347711)
+	 - sub:
+		 - 
+
+---
+ -  
+	 - raw:  
+		 - [[Kobujutsu] On-gaku (BD 1080p) [910D981F].mkv :: Nyaa](https://nyaa.si/view/1406126)
+	 - sub:
+		 - 
+
+---
+ -  
+	 - raw:  
+		 - [[KH] One Piece: Stampede (2019) (BD 1080p) [Dual-Audio].mkv :: Nyaa](https://nyaa.si/view/1230861)
+	 - sub:
+		 - 
+
+---
+ -  
+	 - raw:  
+		 - [[Kametsu] Only Yesterday (1991) (BD 1080p Hi10 FLACx2) [Dual-Audio] :: Nyaa](https://nyaa.si/view/838731)
+	 - sub:
+		 - 
+	 - Comparisons:
+		 - [Only Yesterday - Fussior vs JPN BD | Slowpoke Pics](https://slow.pics/c/wPT33gWN)
+ ---
+  -  
+	 - raw:  
+		 - [Ookii 1 Nensei to Chiisana 2 Nensei (Anime Mirai 2014) 1280x720 MKV remux :: Nyaa](https://nyaa.si/view/586396)
+	 - sub:
+		 - 
+
+---
+ -  
+	 - raw:  
+		 - [[Baws] Paprika (BD 1080p Hi10 FLAC) :: Nyaa](https://nyaa.si/view/1501993)
+	 - sub:
+		 - 
+	 - Comparisons:
+		 - [Paprika [Baws] vs [Kagura] vs UKBD | Slowpoke Pics](https://slow.pics/c/tg00W0c7)
+ ---
+  -  
+	 - raw:  
+		 - [Parol no Miraijima [BD 1080p FLAC][Orphan] :: Nyaa](https://nyaa.si/view/728159)
+	 - sub:
+		 - 
+
+---
+ -  
+	 - raw:  
+		 - [[deanzel] Patema Inverted [BD 1080p Hi10p Dual Audio FLAC][afa8a83e] :: Nyaa](https://nyaa.si/view/713419)
+		 - [[Arid] Patema Inverted [Dual-Audio][BDRip 1920x1080 Hi10 FLAC] :: Nyaa](https://nyaa.si/view/1540690)
+	 - sub:
+		 - 
+	 - Comparisons:
+		 - [Patema Inverted | Slowpoke Pics](https://slow.pics/c/sbOxlvrv)
+ ---
+  -  
+	 - raw:  
+		 - [[hydes] Patlabor: The Movie [JPBD Remux][Dual-Audio] + Extras :: Nyaa](https://nyaa.si/view/1396430)
+	 - sub:
+		 - 
+	 - Comparisons:
+		 - [Patlabor: The Movie - JPBD vs niizk vs sxales | Slowpoke Pics](https://slow.pics/c/ogBgJxeQ)
+ ---
+  -  
+	 - raw:  
+		 - [[hydes] Patlabor 2: The Movie [JPBD Remux][Dual-Audio] + Extras :: Nyaa](https://nyaa.si/view/1385665)
+	 - sub:
+		 - 
+	 - Comparisons:
+		 - [Patlabor 2: The Movie | Slowpoke Pics](https://slow.pics/c/K12gStdE)
+ ---
+  -  
+	 - raw:  
+		 - [[YURI] Penguin Highway[BD 1080p FLAC][Dual Audio] :: Nyaa](https://nyaa.si/view/1331946)
+	 - sub:
+		 - 
+
+---
+ -  
+	 - raw:  
+		 - [[Arid] Perfect Blue [Dual-Audio][BD 1920x1036 x264 FLAC AC-3] :: Nyaa](https://nyaa.si/view/1372227)
+	 - sub:
+		 - 
+	 - Comparisons:
+		 - [Perfect Blue - Dogway vs HiFi | Slowpoke Pics](https://slow.pics/c/pIQMJPm6)
+ ---
+  -  
+	 - raw:  
+		 - [[Drag] Persona 3 The Movie 1 - Spring of Birth (BD 1080p x264 10-bit FLAC) :: Nyaa](https://nyaa.si/view/1365016)
+	 - sub:
+		 - 
+
+---
+ -  
+	 - raw:  
+		 - [[Drag] Persona 3 The Movie 2 - Midsummer Knight's Dream (BD 1080p x264 10-bit FLAC) :: Nyaa](https://nyaa.si/view/1365017)
+	 - sub:
+		 - 
+
+---
+ -  
+	 - raw:  
+		 - [[Drag] Persona 3 The Movie 3 - Falling Down (BD 1080p x264 10-bit FLAC) :: Nyaa](https://nyaa.si/view/1365018)
+	 - sub:
+		 - 
+
+---
+ -  
+	 - raw:  
+		 - [[Drag] Persona 3 The Movie 4 - Winter of Rebirth (BD 1080p x264 10-bit FLAC) :: Nyaa](https://nyaa.si/view/1365019)
+	 - sub:
+		 - 
+
+---
+ -  
+	 - raw:  
+		 - [[Drag] Piano no Mori (2007) (BD 1080p x264 10-bit FLAC) | The Piano Forest :: Nyaa](https://nyaa.si/view/1373745)
+	 - sub:
+		 - 
+
+---
+ -  
+	 - raw:  
+		 - [[Kametsu] Planetarian - Man of the Stars (BD 1080p Hi10 FLAC) [Dual-Audio] :: Nyaa](https://nyaa.si/view/1076267)
+	 - sub:
+		 - 
+
+---
+ -  
+	 - raw:  
+		 - [[REVO]Ponyo on the Cliff by the Sea[BD,1080p,FLAC] [EB6664E8].mkv :: Nyaa](https://nyaa.si/view/594123)
+	 - sub:
+		 - 
+	 - Comparisons:
+		 - [Ponyo on the Cliff by the Sea - REVO vs THORA vs Yousei-Raws vs JPN BD vs MGVC JPN BD vs Disney USA BD | Slowpoke Pics](https://slow.pics/c/cDpy2A7z)
+ ---
+ -  
+	 - raw:  
+		 - [[REVO]Porco Rosso[1080p,FLAC] [8CF9BCDE].mkv :: Nyaa](https://nyaa.si/view/480439)
+	 - sub:
+		 - 
+	 - Comparisons:
+		 - [Porco Rosso 2: Electric Boogaloo - REVO vs JPN BD vs JPN MGVC BD vs USA Disney BD | Slowpoke Pics](https://slow.pics/c/E8AuRknc)
+ ---
+  -  
+	 - raw:  
+		 - [[Arid] Princess Mononoke [Dual-Audio][BD 1920x1036 x264 FLAC] :: Nyaa](https://nyaa.si/view/1373627)
+	 - sub:
+		 - 
+	 - Comparisons:
+		 - [Princess Mononoke - THORA vs REVO vs SbR vs JPN BD vs MGVC JPN BD vs Disney USA BD | Slowpoke Pics](https://slow.pics/c/EZeCj7wp)
+ ---
+  -  
+	 - raw:  
+		 - [[Arid] Promare [ITBD Remux][Dual-Audio] :: Nyaa](https://nyaa.si/view/1366053)
+	 - sub:
+		 - 
+	 - Comparisons:
+		 - [Promare Beatrice VS ITA BD | Slowpoke Pics](https://slow.pics/c/7eVdQUyf)
+ ---
+  -  
+	 - raw:  
+		 - [[YURI] Psychic School Wars (Nerawareta Gakuen) (Dual Audio)[BD 1080p HEVC FLAC] :: Nyaa](https://nyaa.si/view/1384121)
+	 - sub:
+		 - 
+
+---
+ -  
+	 - raw:  
+		 - [[D3] Psycho-Pass - Sinners of the System (BD 1080p Hi10 FLAC) :: Nyaa](https://nyaa.si/view/1202730)
+	 - sub:
+		 - 
+
+---
+ -  
+	 - raw:  
+		 - [[SCY] Psycho-Pass: The Movie (2015) (BD 1080p Hi10 FLAC) [Dual-Audio] :: Nyaa](https://nyaa.si/view/1155224)
+	 - sub:
+		 - 
+
+---
+ -  
+	 - raw:  
+		 - [[Arid] Puella Magi Madoka Magica the Movie Trilogy [Dual-Audio][BDRip 1920x1080 HEVC FLAC DTS] | Mahou Shoujo Madoka Magica :: Nyaa](https://nyaa.si/view/1422337)
+	 - sub:
+		 - 
+
+---
+ -  
+	 - raw:  
+		 - [[Arid] Puella Magi Madoka Magica the Movie Trilogy [Dual-Audio][BDRip 1920x1080 HEVC FLAC DTS] | Mahou Shoujo Madoka Magica :: Nyaa](https://nyaa.si/view/1422337)
+	 - sub:
+		 - 
+
+---
+ -  
+	 - raw:  
+		 - [[Arid] Puella Magi Madoka Magica the Movie Trilogy [Dual-Audio][BDRip 1920x1080 HEVC FLAC DTS] | Mahou Shoujo Madoka Magica :: Nyaa](https://nyaa.si/view/1422337)
+		 - [[Noyr] Mahou Shoujo Madoka☆Magica Hangyaku no Monogatari [BDRip 1920x1080 HEVC FLAC] :: Nyaa](https://nyaa.si/view/1380616)
+	 - sub:
+		 - 
+
+---
+ -  
+	 - raw:  
+		 - [[YURI] Rascal Does Not Dream of a Dreaming Girl (Seishun Buta Yarou wa Yumemiru Shoujo no Yume o Minai) [BD 1080p FLAC] :: Nyaa](https://nyaa.si/view/1329927)
+	 - sub:
+		 - 
+
+---
+ -  
+	 - raw:  
+		 - [[hydes] Redline [ITBD Remux][Dual-Audio] + OST & Extras :: Nyaa](https://nyaa.si/view/1339636)
+	 - sub:
+		 - 
+	 - Comparisons:
+		 - [Redline comparisons | Slowpoke Pics](https://slow.pics/c/CAGP9utl)
+ ---
+ -  
+	 - raw:  
+		 - [[RAI] Ride Your Wave [Dual-Audio][BDRip 1920x1080 HEVC FLAC] :: Nyaa](https://nyaa.si/view/1401592)
+		 - [[Arid] Ride Your Wave [Dual-Audio][BDRip 1920x1080 x264 FLAC] :: Nyaa](https://nyaa.si/view/1390157)
+	 - sub:
+		 - 
+	 - Comparisons:
+		 - [Ride Your Wave | Slowpoke Pics](https://slow.pics/c/NON0EKNE)
+ ---
+  -  
+	 - raw:  
+		 - [Riding Bean [BD.1080p] [Iznjie Biznjie] :: Nyaa](https://nyaa.si/view/1412567)
+	 - sub:
+		 - 
+	 - Comparisons:
+		 - [Riding Bean | Slowpoke Pics](https://slow.pics/c/B4UPRQvx)
+ ---
+  -  
+	 - raw:  
+		 - [[gg]_Anime_Mirai_2013_-_Ryo_[BD_1080p]_[0BF97B3D].mkv :: Nyaa](https://nyaa.si/view/453715)
+	 - sub:
+		 - 
+
+---
+ -  
+	 - raw:  
+		 - [[SCY-Circle] Saenai Heroine no Sodatekata Fine (BD 1080p Hi10 FLAC) :: Nyaa](https://nyaa.si/view/1362655)
+	 - sub:
+		 - 
+	 - Comparisons:
+		 - [Saenai Heroine no Sodatekata. Fine | Slowpoke Pics](https://slow.pics/c/KWquurr4)
+ ---
+  -  
+	 - raw:  
+		 - [[Vodes] Youjo Senki Movie [BD 1080p HEVC 10bit FLAC] [EngGerSub] | Saga of Tanya the Evil - the Movie - :: Nyaa](https://nyaa.si/view/1465140)
+	 - sub:
+		 - 
+
+---
+ -  
+	 - raw:  
+		 - [[YURI] Selector Destructed WIXOSS Movie [BD 1080p x264 10bit FLAC] :: Nyaa](https://nyaa.si/view/1389547)
+	 - sub:
+		 - 
+
+---
+ -  
+	 - raw:  
+		 - [[BBT-RMX] Slam Dunk Movies 1-4 (BD 1080p HEVC x265 10bit FLAC) :: Nyaa](https://nyaa.si/view/1417616)
+	 - sub:
+		 - 
+
+---
+ -  
+	 - raw:  
+		 - [[BBT-RMX] Slam Dunk Movies 1-4 (BD 1080p HEVC x265 10bit FLAC) :: Nyaa](https://nyaa.si/view/1417616)
+	 - sub:
+		 - 
+
+---
+ -  
+	 - raw:  
+		 - [[BBT-RMX] Slam Dunk Movies 1-4 (BD 1080p HEVC x265 10bit FLAC) :: Nyaa](https://nyaa.si/view/1417616)
+	 - sub:
+		 - 
+
+---
+ -  
+	 - raw:  
+		 - [[BBT-RMX] Slam Dunk Movies 1-4 (BD 1080p HEVC x265 10bit FLAC) :: Nyaa](https://nyaa.si/view/1417616)
+	 - sub:
+		 - 
+
+---
+ -  
+	 - raw:  
+		 - [[Arid] Sound! Euphonium the Movie - Welcome to the Kitauji High School Concert Band [BDRip 1920x1080 x264 FLAC] :: Nyaa](https://nyaa.si/view/1392806)
+	 - sub:
+		 - 
+
+---
+ -  
+	 - raw:  
+		 - 
+	 - sub:
+		 - 
+
+---
+ -  
+	 - raw:  
+		 - [[FFF-Kantai] Hibike! Euphonium - Chikai no Finale [BD][1080p-FLAC][B63B76F9].mkv :: Nyaa](https://nyaa.si/view/1419832)
+	 - sub:
+		 - 
+
+---
+  -  
+	 - raw:  
+		 - [[Arid] Spirited Away [Dual-Audio][BD 1920x1038 x264 FLAC] :: Nyaa](https://nyaa.si/view/1376904)
+	 - sub:
+		 - 
+	 - Comparisons:
+		 - [Spirited Away 2: The Squeakquel - REVO vs CtrlHD vs Miyazaki Collection MGVC JPN BD vs MGVC JPN BD vs Disney USA BD | Slowpoke Pics](https://slow.pics/c/ALIAhsQf)
+ ---
+  -  
+	 - raw:  
+		 - [[Arid] Steins;Gate Complete Collection [Dual-Audio][BD 1080p FLAC] :: Nyaa](https://nyaa.si/view/1381808)
+	 - sub:
+		 - 
+	 - Comparisons:
+		 - [Steins;Gate - The Movie - Load Region of Deja Vu | Slowpoke Pics](https://slow.pics/c/QN9vNZdc)
+ ---
+  -  
+	 - raw:  
+		 - [[TTGA] Summer Ghost (2021) (Movie) [BDRemux] [1080p DTS-HD MA + FLAC AVC] :: Nyaa](https://nyaa.si/view/1509244)
+		 - [[Moozzi2] Summer Ghost (BD 1920x1080 x265-10Bit 2Audio) - Movie + SP :: Nyaa](https://nyaa.si/view/1506701)
+	 - sub:
+		 - 
+	 - Comparisons:
+		 - [Summer Ghost | Slowpoke Pics](https://slow.pics/c/gbija2Ca)
+ ---
+  -  
+	 - raw:  
+		 - [[Arid] Sword Art Online - Ordinal Scale [Dual-Audio][BDRip 1080p x264 FLAC] :: Nyaa](https://nyaa.si/view/1394144)
+		 - [[RAI] Sword Art Online the Movie -Ordinal Scale- [Dual-Audio][BDRip 1920x1080 x264 FLAC] :: Nyaa](https://nyaa.si/view/1392999)
+	 - sub:
+		 - 
+	 - Comparisons:
+		 - [SAO -Ordinal Scale- | Slowpoke Pics](https://slow.pics/c/rq7KgrXH)
+ ---
+  -  
+	 - raw:  
+		 - [[Vodes] Sword of the Stranger (Stranger: Mukoh Hadan) [BD 1080p HEVC 10bit] [Dual-Audio] :: Nyaa](https://nyaa.si/view/1437123)
+	 - sub:
+		 - 
+	 - Comparisons:
+		 - [Sword of the Stranger (Revo vs Afro vs D-Zone vs Thora) | Slowpoke Pics](https://slow.pics/c/AVzqO0NK)
+ ---
+  -  
+	 - raw:  
+		 - [Tailenders.BD(1080p.FLAC)[Afro] :: Nyaa](https://nyaa.si/view/274938)
+	 - sub:
+		 - 
+
+---
+ -  
+	 - raw:  
+		 - [Tales_from_Earthsea_(2006)_[1080p,BluRay,flac,dts,x264]_-_THORA :: Nyaa](https://nyaa.si/view/262306)
+	 - sub:
+		 - 
+	 - Comparisons:
+		 - [Tales from Earthsea - THORA vs EbP vs Disney USA BD vs JPN BD | Slowpoke Pics](https://slow.pics/c/R64vn64t)
+ ---
+  -  
+	 - raw:  
+		 - [[Holomux] Tamako Love Story [BD 1080p x264 10bit FLAC 2.0 Dual] :: Nyaa](https://nyaa.si/view/1423312)
+	 - sub:
+		 - 
+	 - Comparisons:
+		 - [Tamako Love Story | Slowpoke Pics](https://slow.pics/c/Yx8XfkNC)
+ ---
+  -  
+	 - raw:  
+		 - [Tekkon.Kinkreet.BD(1080p.FLAC)[Afro] (revised) :: Nyaa](https://nyaa.si/view/274547)
+	 - sub:
+		 - 
+
+---
+ -  
+	 - raw:  
+		 - [[YURI] The Anthem of the Heart (Kokoro ga Sakebitagatterunda) [BD 1080p FLAC] :: Nyaa](https://nyaa.si/view/1330327)
+	 - sub:
+		 - 
+
+---
+ -  
+	 - raw:  
+		 - [[Arid] The Boy and The Beast [Dual-Audio][BDRip 1920x1036 x264 FLAC] :: Nyaa](https://nyaa.si/view/1389117)
+	 - sub:
+		 - 
+
+---
+ -  
+	 - raw:  
+		 - [[Watashi]_The_Case_of_Hana_&_Alice_[BD_1080p][31076D88].mkv :: Nyaa](https://nyaa.si/view/733120)
+	 - sub:
+		 - 
+	 - Comparisons:
+		 - [The Case of Hana & Alice | Slowpoke Pics](https://slow.pics/c/o9scgcWd)
+ ---
+  -  
+	 - raw:  
+		 - [[NEETgirl] Neko no Ongaeshi | The Cat Returns (2002) - Movie (BD 1080p x264 8-bit FLAC 5.1 Dual Audio) :: Nyaa](https://nyaa.si/view/1418077)
+	 - sub:
+		 - 
+	 - Comparisons:
+		 - [The Cat Returns - CHD vs DON vs MGVC JPN BD vs Disney USA BD | Slowpoke Pics](https://slow.pics/c/4urqQt0l)
+ ---
+  -  
+	 - raw:  
+		 - [[hchcsen] The Disappearance of Haruhi Suzumiya (Suzumiya Haruhi no Shoushitsu) (1080p) (BDRip) (Dual Audio) :: Nyaa](https://nyaa.si/view/1501463)
+	 - sub:
+		 - 
+
+---
+ -  
+	 - raw:  
+		 - [[Reza] Kara no Kyoukai - Overlooking View [BDRip 1080p HEVC FLAC] (Garden Of Sinners) :: Nyaa](https://nyaa.si/view/1467853)
+	 - sub:
+		 - 
+	 - Comparisons:
+		 - [Boundary Of Emptiness: The Garden Of Sinners | Slowpoke Pics](https://slow.pics/c/mtlrVdye)
+ ---
+  -  
+	 - raw:  
+		 - [[ANE] Kara no Kyoukai [BDRip 1080p x264 FLAC] :: Nyaa](https://nyaa.si/view/264295)
+	 - sub:
+		 - 
+	 - Comparisons:
+		 - [Kara no Kyoukai 2: Satsujin Kousatsu (Zen) [BD 720-1080p] | Slowpoke Pics](https://slow.pics/c/fWUuaVgw)
+ ---
+  -  
+	 - raw:  
+		 - [[ANE] Kara no Kyoukai [BDRip 1080p x264 FLAC] :: Nyaa](https://nyaa.si/view/264295)
+	 - sub:
+		 - 
+
+---
+ -  
+	 - raw:  
+		 - [[ANE] Kara no Kyoukai [BDRip 1080p x264 FLAC] :: Nyaa](https://nyaa.si/view/264295)
+	 - sub:
+		 - 
+
+---
+ -  
+	 - raw:  
+		 - [[ANE] Kara no Kyoukai [BDRip 1080p x264 FLAC] :: Nyaa](https://nyaa.si/view/264295)
+	 - sub:
+		 - 
+
+---
+ -  
+	 - raw:  
+		 - [[ANE] Kara no Kyoukai [BDRip 1080p x264 FLAC] :: Nyaa](https://nyaa.si/view/264295)
+	 - sub:
+		 - 
+
+---
+ -  
+	 - raw:  
+		 - [[ANE] Kara no Kyoukai [BDRip 1080p x264 FLAC] :: Nyaa](https://nyaa.si/view/264295)
+	 - sub:
+		 - 
+
+---
+ -  
+	 - raw:  
+		 - [[Arid] The Garden of Sinners - Future Gospel [BDRip 1920x1080 Hi10 FLAC] | Gekijouban Kara no Kyoukai - Mirai Fukuin :: Nyaa](https://nyaa.si/view/1400842)
+	 - sub:
+		 - 
+
+---
+ -  
+	 - raw:  
+		 - [[Alt] The Garden of Sinners - Future Gospel - Extra Chorus [BDRip 1080p Hi10 FLAC5.1].mkv (Kara no Kyoukai - Mirai Fukuin - Extra Chorus) :: Nyaa](https://nyaa.si/view/1400860)
+	 - sub:
+		 - 
+
+---
+ -  
+	 - raw:  
+		 - [[RAI] The Garden of Words [Dual-Audio][BDRip 1080p Hi10 FLAC] | Kotonoha no Niwa :: Nyaa](https://nyaa.si/view/1472824)
+		 - [[NSDAB] The Garden of Words [BD 1080p Opus] :: Nyaa](https://nyaa.si/view/1284227)
+	 - sub:
+		 - 
+	 - Comparisons:
+		 - [The Garden of Words - Beatrice-Raws vs D-Z0N3 vs ITBD vs JPBD vs neko-raws vs NSDAB vs Raizel vs THORA | Slowpoke Pics](https://slow.pics/c/93gorspe)
+		 - [The Garden of Words (v2) - Beatrice-Raws vs D-Z0N3 vs ITBD vs JPBD vs neko-raws vs NSDAB vs Raizel vs THORA | Slowpoke Pics](https://slow.pics/c/0scDMFeY)
+ ---
+  -  
+	 - raw:  
+		 - [[UDF] The Girl Who Leapt Through Time (Toki wo Kakeru Shoujo) 2006 (BD 1080p 2xFLAC) [dual-audio] [E5869AB8] :: Nyaa](https://nyaa.si/view/1276043)
+	 - sub:
+		 - 
+
+---
+ -  
+	 - raw:  
+		 - [[Kulot] Mahouka Koukou no Rettousei Movie - Hoshi wo Yobu Shoujo [BDRip 1920x1080 HEVC FLAC] | The Irregular at Magic High School The Movie - The Girl Who Summons The Stars :: Nyaa](https://nyaa.si/view/1396204)
+	 - sub:
+		 - 
+
+---
+ -  
+	 - raw:  
+		 - [[Arid] The Moment You Fall in Love (BD 1080p Hi10 FLAC) | Suki ni Naru Sono Shunkan wo. Kokuhaku Jikkou Iinkai :: Nyaa](https://nyaa.si/view/1409566)
+	 - sub:
+		 - 
+
+---
+ -  
+	 - raw:  
+		 - [[Arid] Night is Short, Walk on Girl [Dual-Audio][BDRip 1920x1080 HEVC FLAC AC-3] :: Nyaa](https://nyaa.si/view/1371885)
+	 - sub:
+		 - 
+
+---
+ -  
+	 - raw:  
+		 - [[Arid] The Place Promised in Our Early Days [Dual-Audio][BDRip 1920x1080 HEVC FLAC] :: Nyaa](https://nyaa.si/view/1372191)
+	 - sub:
+		 - 
+
+---
+ -  
+	 - raw:  
+		 - [[Arid] The Princess and the Pilot [BDRip 1920x1038 x264 FLAC] | Toaru Hikuushi e no Tsuioku :: Nyaa](https://nyaa.si/view/1395168)
+	 - sub:
+		 - 
+
+---
+ -  
+	 - raw:  
+		 - [[REVO] The Borrower Arrietty [BD,1080p,FLAC-Dual][10bit] [33032026].mkv | Anime Tosho](https://animetosho.org/view/revo-borrower-arrietty-bd-1080p-flac-dual-10bit-33032026-mkv.497204)
+	 - sub:
+		 - 
+	 - Comparisons:
+		 - [The Secret World of Arrietty | Slowpoke Pics](https://slow.pics/c/LQ1xtD5f)
+		 - [The Secret World of Arrietty - REVO vs JPN BD/NA JPN BD vs Shout Factory USA BD vs Disney USA BD | Slowpoke Pics](https://slow.pics/c/jk9ilKr3)
+ ---
+  -  
+	 - raw:  
+		 - [The_Sky_Crawlers_(2008)_[1080p,BluRay,x264,DTS-ES]_-_gg-THORA :: Nyaa](https://nyaa.si/view/785994)
+	 - sub:
+		 - 
+
+---
+ -  
+	 - raw:  
+		 - [[YURI] The Wind Rises (Kaze Tachinu) [Dual Audio_Multi Subs][BD 1080p FLAC] :: Nyaa](https://nyaa.si/view/1330094)
+		 - [The_Wind_Rises_2013_[1080p,BluRay,flac,x264]_-_THORA :: Nyaa](https://nyaa.si/view/927401)
+	 - sub:
+		 - 
+	 - Comparisons:
+		 - [The Wind Rises - Kawaiika-Raws vs REVO vs THORA vs MGVC JPN BD vs Miyazaki Collection MGVC JPN BD vs Disney USA BD | Slowpoke Pics](https://slow.pics/c/mCPs4Nmf)
+ ---
+  -  
+	 - raw:  
+		 - [[sam] Tiger & Bunny (BD 1080p x264 Hi10P FLAC) :: Nyaa](https://nyaa.si/view/1416054)
+	 - sub:
+		 - 
+
+---
+ -  
+	 - raw:  
+		 - [[deanzel] Time of Eve - The Movie [BD 1080p Hi10p Dual Audio FLAC][bd384d18] :: Nyaa](https://nyaa.si/view/711215)
+	 - sub:
+		 - 
+	 - Comparisons:
+		 - [time of eve | Slowpoke Pics](https://slow.pics/c/WpmEKSMt)
+ ---
+  -  
+	 - raw:  
+		 - [[Orphan] Tobira o Akete (DVD) :: Nyaa](https://nyaa.si/view/1438126)
+	 - sub:
+		 - 
+
+---
+ -  
+	 - raw:  
+		 - [[hydes] Tokyo Godfathers [USBD Remux][Dual-Audio] + Extras :: Nyaa](https://nyaa.si/view/1356516)
+	 - sub:
+		 - 
+
+---
+ -  
+	 - raw:  
+		 - [[sam] Terra e... (1980) | Toward the Terra - Movie (BD 1080p x264 Hi10P TrueHD) :: Nyaa](https://nyaa.si/view/1417596)
+	 - sub:
+		 - 
+	 - Comparisons:
+		 - [Toward the Terra OnDeed vs Kagura | Slowpoke Pics](https://slow.pics/c/FMPTGJ0G)
+ ---
+  -  
+	 - raw:  
+		 - [[Yoghurt] Trinity Seven - Eternity Library & Alchemic Girl [BD 1920x1080 x264 FLAC] :: Nyaa](https://nyaa.si/view/1377693)
+	 - sub:
+		 - 
+	 - Comparisons:
+		 - [unknown | Slowpoke Pics](https://slow.pics/c/6xz6YaFo)
+ ---
+  -  
+	 - raw:  
+		 - [[Foo] Taifuu no Noruda (BD 1080p x264 10-bit FLAC) [Dual Audio] | Typhoon Noruda :: Nyaa](https://nyaa.si/view/1342169)
+	 - sub:
+		 - 
+
+---
+ -  
+	 - raw:  
+		 - [[Kulot] Un-Go Inga-ron [Dual-Audio][BDRip 1920x1080 x264 AAC FLAC] :: Nyaa](https://nyaa.si/view/1390947)
+	 - sub:
+		 - 
+
+---
+ -  
+	 - raw:  
+		 - [Vampire Hunter D (1985) [BD.1080p] [Iznjie Biznjie] [67A57413].mkv :: Nyaa](https://nyaa.si/view/720981)
+	 - sub:
+		 - 
+
+---
+ -  
+	 - raw:  
+		 - [Vampire Hunter D: Bloodlust (BD 1080p) [Judgment] :: Nyaa](https://nyaa.si/view/884714)
+	 - sub:
+		 - 
+	 - Comparisons:
+		 - [Vampire Hunter D - Bloodlust | Slowpoke Pics](https://slow.pics/c/3Hg8J6Cg)
+ ---
+ -  
+	 - raw:  
+		 - [Venus Wars - Venus Senki - ヴィナス戦記 v2 [BD.1080p] [Iznjie Biznjie] :: Nyaa](https://nyaa.si/view/1241291)
+	 - sub:
+		 - 
+
+---
+ -  
+	 - raw:  
+		 - [[Baws] Violet Evergarden: The Movie (BD 1080p HEVC TrueHD) (Dual-Audio) :: Nyaa](https://nyaa.si/view/1453594)
+		 - [[Baws] Violet Evergarden: The Movie (BD 4K HEVC TrueHD) (Dual-Audio) :: Nyaa](https://nyaa.si/view/1453593)
+	 - sub:
+		 - 
+
+---
+ -  
+	 - raw:  
+		 - [[Kulot] Violet Evergarden Gaiden Eien to Jidou Shuki Ningyou v3 [Dual-Audio][BDRip 1920x804 HEVC FLACx2] | Violet Evergarden I Eternity and the Auto Memory Doll :: Nyaa](https://nyaa.si/view/1400352)
+	 - sub:
+		 - 
+	 - Comparisons:
+		 - [Violet Evergarden: Eternity and the Auto Memories Doll - Beatrice-Raws vs PTer vs JPN BD vs USA BD | Slowpoke Pics](https://slow.pics/c/JyeOYg83)
+ ---
+  -  
+	 - raw:  
+		 - [Weathering with You 2019 ITA 1080p BluRay DDP 5.1 x264 D-Z0N3 :: Nyaa](https://nyaa.si/view/1537307)
+	 - sub:
+		 - 
+	 - Comparisons:
+		 - [Weathering with You - D-Z0N3 vs ITA D-Z0N3 vs Beatrice-Raws vs JPN BD vs Dynit ITA BD vs Shout Factory USA BD vs TWN BD | Slowpoke Pics](https://slow.pics/c/p6OaAyy7)
+ ---
+  -  
+	 - raw:  
+		 - [[bxyh]_Welcome_to_the_Space_Show_[BD_1080p_AAC_Dual][A2F70EB9] :: Nyaa](https://nyaa.si/view/759562)
+	 - sub:
+		 - 
+	 - Comparisons:
+		 - [Welcome to the Space Show | Slowpoke Pics](https://slow.pics/c/XWxAGk82)
+ ---
+ -  
+	 - raw:  
+		 - [[REVO]When Marnie Was There[BD,1080p,AAC] [221CD027].mkv :: Nyaa](https://nyaa.si/view/794078)
+	 - sub:
+		 - 
+	 - Comparisons:
+		 - [When Marnie Was There - REVO vs neko-raws vs EbP vs MGVC JPN BD vs Universal USA BD | Slowpoke Pics](https://slow.pics/c/TiU7AYcM)
+ ---
+  -  
+	 - raw:  
+		 - [Whisper_of_the_Heart_(1995)_[1080p,BluRay,flac,dts,x264]_-_THORA :: Nyaa](https://nyaa.si/view/929675)
+	 - sub:
+		 - 
+	 - Comparisons:
+		 - [Whisper of the Heart - THORA vs JPN BD | Slowpoke Pics](https://slow.pics/c/FEfHfpwO)
+ ---
+  -  
+	 - raw:  
+		 - [[YURI] Wicked City (Youjuu Toshi) (Dual Audio)[BD 1440X1080 HEVC FLAC] :: Nyaa](https://nyaa.si/view/1390968)
+	 - sub:
+		 - 
+	 - Comparisons:
+		 - [wicked city | Slowpoke Pics](https://slow.pics/c/hjHkscl6)
+ ---
+  -  
+	 - raw:  
+		 - [Wolf.Children.1080p-Hi10p.BluRay.FLAC5.1.x264-CTR.[893DF64F].mkv (English Dubbed Dual Audio) (Ookami Kodomo no Ame to Yuki) :: Nyaa](https://nyaa.si/view/943460)
+	 - sub:
+		 - 
+	 - Comparisons:
+		 - [Wolf Children (Yousei vs REVO) | Slowpoke Pics](https://slow.pics/c/6GSlGebw)
+ ---
+  -  
+	 - raw:  
+		 - [[YURI] Your Name (Kimi No Na Wa) [BD 1080p Flac][Dual Audio] :: Nyaa](https://nyaa.si/view/1329797)
+	 - sub:
+		 - 
+
+---
