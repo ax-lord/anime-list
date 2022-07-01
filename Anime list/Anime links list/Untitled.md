@@ -320,7 +320,7 @@
 	 - Comparisons:
 		 - [unknown | Slowpoke Pics](https://slow.pics/c/0IR9UBFD)
  ---
-  -  [[fate
+  -  [[Fatestay night Movie - Heaven's Feel - III Spring Song]]
 	 - raw:  
 		 - [[Kaleido-SCY] Fate Stay Night Heaven's Feel (BD 1080p Hi10 FLAC) [Dual-Audio] :: Nyaa](https://nyaa.si/view/1391529)
 	 - sub:
@@ -328,14 +328,14 @@
 	 - Comparisons:
 		 - [HF3 | Slowpoke Pics](https://slow.pics/c/GzejDyUq)
  ---
-  -  
+  -  [[Uchiage Hanabi Shita kara Miru ka Yoko kara Miru ka]]
 	 - raw:  
 		 - [[YURI] Uchiage Hanabi, Shita kara Miru ka Yoko kara Miru ka (Fireworks, Should We See It from the Side or the Bottom?) (Dual Audio) [BD 1080p x264 10bit FLAC] :: Nyaa](https://nyaa.si/view/1383047)
 	 - sub:
 		 - 
 
 ---
- -  
+ -  [[Free! Take Your Marks]]
 	 - raw:  
 		 - [[Commie] Free! Take Your Marks [BD 1080p AAC] :: Nyaa](https://nyaa.si/view/1111459)
 	 - sub:
@@ -350,7 +350,7 @@
 	 - Comparisons:
 		 - [From Up on Poppy Hill - THORA vs JPN BD (Studio Ghibli) vs USA BD (GKIDS) | Slowpoke Pics](https://slow.pics/c/AZTrKEZv)
  ---
-  -  
+  -  [[Fullmetal Alchemist - The Sacred Star of Milos]]
 	 - raw:  
 		 - [[Arid] Fullmetal Alchemist: The Sacred Star of Milos [Dual-Audio][JPBD Remux] | Hagane no Renkinjutsushi: Milos no Seinaru Hoshi :: Nyaa](https://nyaa.si/view/1447344)
 	 - sub:
@@ -358,14 +358,14 @@
 	 - Comparisons:
 		 - [milos | Slowpoke Pics](https://slow.pics/c/5hXuoTUx)
  ---
-  -  
+  -  [[Garo Movie - Divine Flame]]
 	 - raw:  
 		 - [[Kulot] Garo - Divine Flame [Dual-Audio][BDRip 1920x816 x264 AC3 FLAC] :: Nyaa](https://nyaa.si/view/1393687)
 	 - sub:
 		 - 
 
 ---
- -  
+ -  [[Koukaku Kidoutai - Shin Movie]]
 	 - raw:  
 		 - [[Kametsu] Ghost in the Shell - The New Movie (2015) v2 (BD 1080p Hi10 FLAC) [Dual-Audio] :: Nyaa](https://nyaa.si/view/873294)
 	 - sub:
@@ -373,7 +373,7 @@
 	 - Comparisons:
 		 - [GITS New Movie | Slowpoke Pics](https://slow.pics/c/bFx6zXuc)
  ---
-  -  
+  -  [[Innocenc]]
 	 - raw:  
 		 - [[hydes] Ghost In The Shell 2: Innocence [ITBD Remux][Dual-Audio] + OST :: Nyaa](https://nyaa.si/view/1338669)
 	 - sub:
@@ -390,7 +390,7 @@
 		 - 
 
 ---
- -  
+ -  [[Gintama Movie 1 - Shinyaku Benizakura-hen]]
 	 - raw:  
 		 - [Gekijouban Gintama: Shinyaku Benizakura Hen (BD 1080p) [Judgment] :: Nyaa](https://nyaa.si/view/793128)
 	 - sub:
@@ -398,7 +398,7 @@
 	 - Comparisons:
 		 - [Gintama Benizakura | Slowpoke Pics](https://slow.pics/c/45ZITyVg)
  ---
-  -  
+  -  [[Gintama Movie 2 - Kanketsu-hen - Yorozuya yo Eien Nare]]
 	 - raw:  
 		 - [[Selene] Gintama Movie 2: Kanketsu-hen - Yorozuya yo Eien Nare [BD 1080p FLAC] | Gintama: The Final Chapter - Be Forever Yorozuya :: Nyaa](https://nyaa.si/view/1393869)
 	 - sub:
@@ -406,14 +406,14 @@
 	 - Comparisons:
 		 - [gintama | Slowpoke Pics](https://slow.pics/c/UcJc2iZD)
  ---
-  -  
+  -  [[Gintama - The Final]]
 	 - raw:  
 		 - [[Noyr] Gintama THE FINAL (BDRip 1920x1080 x264 10bit FLAC) :: Nyaa](https://nyaa.si/view/1448284)
 	 - sub:
 		 - 
 
 ---
- -  
+ -  [[gir
 	 - raw:  
 		 - [Girls.und.Panzer.der.Film.S00E37.1080p-Hi10p.BluRay.FLAC5.1.x264-CTR.[4A03B7CB].mkv (English Dual Audio) :: Nyaa](https://nyaa.si/view/919675)
 	 - sub:
