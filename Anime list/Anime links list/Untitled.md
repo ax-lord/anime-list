@@ -584,14 +584,14 @@
 	 - Comparisons:
 		 - [Kiki's Delivery Service v2 - REVO vs THORA vs ZQ vs JPN BD vs JPN MGVC BD vs Disney USA BD | Slowpoke Pics](https://slow.pics/c/vyFvpZNA)
  ---
-  -  
+  -  [[Kiniro Mosaic - Pretty Day]]
 	 - raw:  
 		 - [[Drag] Kiniro Mosaic - Pretty Days (BD 1080p x265 10-bit FLAC) :: Nyaa](https://nyaa.si/view/1364096)
 	 - sub:
 		 - 
 
 ---
- -  
+ -  [[Kizumonogatari I - Tekketsu-hen]]
 	 - raw:  
 		 - [[MTBB] Kizumonogatari - 01 (BD 1080p) :: Nyaa](https://nyaa.si/view/1446994)
 		 - [[Lulu] Kizumonogatari [BDRip 1920x816 HEVC FLAC] :: Nyaa](https://nyaa.si/view/1453813)
@@ -599,7 +599,7 @@
 		 - 
 
 ---
- -  
+ -  [[Kizumonogatari II - Nekketsu-hen]]
 	 - raw:  
 		 - [[MTBB] Kizumonogatari - 02 (BD 1080p) :: Nyaa](https://nyaa.si/view/1447481)
 		 - [[Lulu] Kizumonogatari [BDRip 1920x816 HEVC FLAC] :: Nyaa](https://nyaa.si/view/1453813)
@@ -607,7 +607,7 @@
 		 - 
 
 ---
- -  
+ -  [[Kizumonogatari III - Reiketsu-hen]]
 	 - raw:  
 		 - [[MTBB] Kizumonogatari - 03 (BD 1080p) :: Nyaa](https://nyaa.si/view/1447920)
 		 - [[Lulu] Kizumonogatari [BDRip 1920x816 HEVC FLAC] :: Nyaa](https://nyaa.si/view/1453813)
@@ -615,7 +615,7 @@
 		 - 
 
 ---
- -  
+ -  [[
 	 - raw:  
 		 - [[Pog42] KonoSuba Seasons 1-2 + OVAs + Movie(Kurenai Densetsu|Legend of Crimson) | Kono Subarashii Sekai ni Shukufuku wo! (BD 1080p HEVC x265 10-bit Opus) :: Nyaa](https://nyaa.si/view/1331497)
 	 - sub:
