@@ -102,7 +102,7 @@
 		 - 
 
 ---
- -  [[blood
+ -  [[Blood-C - The Last Dark]]
 	 - raw:  
 		 - [[SCY] Blood-C - The Last Dark (BD 1080p Hi10 FLAC) [Dual-Audio] :: Nyaa](https://nyaa.si/view/1054744)
 	 - sub:
@@ -116,7 +116,7 @@
 		 - 
 
 ---
- -  
+ -  [[Boruto - Naruto the Movi]]
 	 - raw:  
 		 - [[Lulu] Boruto - Naruto the Movie [BDRip 1912x1036 x264 FLAC][Dual-Audio] :: Nyaa](https://nyaa.si/view/1457838)
 	 - sub:
@@ -130,7 +130,7 @@
 		 - 
 
 ---
- -  
+ -  [[bongu
 	 - raw:  
 		 - [[VCB-Studio] Bungou Stray Dogs Dead Apple / 文豪ストレイドッグス DEAD APPLE 10-bit 1080p HEVC BDRip [Movie Fin] :: Nyaa](https://nyaa.si/view/1117391)
 	 - sub:
