@@ -85,7 +85,7 @@ Eiga Chuunibyou demo Koi ga Shitai! Take On Me https://drive.google.com/drive/fo
 Yoake Tsugeru Lu no Uta https://slow.pics/c/pcZOJNuw https://mezzosubs.blogspot.com/2018/05/blog-post.html
 Made in Abyss Movie 3: Fukaki Tamashii no Reimei https://slow.pics/c/O0Lio5ij https://www.scarlet-tm.com/2020/10/made-in-abyss-movies-13-bluray.html
 Mai Mai Shinko to Sennen no Mahou https://www.msoms-anime.net/showthread.php?t=184592 https://subscene.com/subtitles/mai-mai-miracle-maimai-shinko-to-sen-nen-no-mah/arabic/1421413
-Sayonara no Asa ni Yakusoku no Hana wo Kazarou https://slow.pics/c/wM4Gb8Gs https://drive.google.com/drive/folders/1-vUNYgqQt00DTfjZwLfQgfvJHFDFQbMh https://ddl.assassinssub.org/Movies/09%20Sayonara%20No%20Asa%20Ni%20Yakusoku%20No%20Hana%20Wo%20Kazarou/ https://subscene.com/subtitles/sayonara-no-asa-ni-yakusoku-no-hana-o-kazarou/arabic/1874592 https://subscene.com/subtitles/sayonara-no-asa-ni-yakusoku-no-hana-o-kazarou/arabic/2222752
+=Sayonara no Asa ni Yakusoku no Hana wo Kazarou https://slow.pics/c/wM4Gb8Gs https://drive.google.com/drive/folders/1-vUNYgqQt00DTfjZwLfQgfvJHFDFQbMh https://ddl.assassinssub.org/Movies/09%20Sayonara%20No%20Asa%20Ni%20Yakusoku%20No%20Hana%20Wo%20Kazarou/ https://subscene.com/subtitles/sayonara-no-asa-ni-yakusoku-no-hana-o-kazarou/arabic/1874592 https://subscene.com/subtitles/sayonara-no-asa-ni-yakusoku-no-hana-o-kazarou/arabic/2222752
 Memories https://subscene.com/subtitles/memories/arabic/2327279 http://www.dacsubs.com/2015/11/memories-1995.html https://subscene.com/subtitles/memories/arabic/710477
 Metropolis https://subscene.com/subtitles/metropolis-metoroporisu/arabic/1521123 
 Sennen Joyuu https://slow.pics/c/Vr4yJLqs https://www.scarlet-tm.com/2015/04/millennium-actress.html
