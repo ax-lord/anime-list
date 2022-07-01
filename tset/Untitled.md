@@ -16,7 +16,7 @@ Da Yu Hai Tang https://omarhidanfansub.blogspot.com/2018/12/big-fish-and-begonia
 Blood-C: The Last Dark https://subscene.com/subtitles/blood-c-the-last-dark/arabic/1301710
 =Our Seven-Day War https://sawada-sub.blogspot.com/2020/05/bokura-no-nanokakan-sensou.html
 Boruto: Naruto the Movie https://omarhidanfansub.blogspot.com/2016/07/boruto-naruto-movie-bluray.html
-Broken Blade https://devil-fansubs.blogspot.com/2013/08/devil-fansub-broken-blade.html
+=Broken Blade https://devil-fansubs.blogspot.com/2013/08/devil-fansub-broken-blade.html
 Bungou Stray Dogs: Dead Apple https://www.winoxa.info/2018/09/bungo-stray-dogs-dead-apple.html https://vonsub.blogspot.com/2019/03/BungouStrayDogsDeadApple.html
 Cardcaptor Sakura Movies https://subscene.com/subtitles/cardcaptor-sakura-the-movie-gekijban-kdokyaput-sakura/arabic/2304158
 Tenkuu no Shiro Laputa https://slow.pics/c/pG495YBi https://subscene.com/subtitles/castle-in-the-sky/arabic/2315598
