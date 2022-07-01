@@ -1122,7 +1122,7 @@
 	 - Comparisons:
 		 - [Spirited Away 2: The Squeakquel - REVO vs CtrlHD vs Miyazaki Collection MGVC JPN BD vs MGVC JPN BD vs Disney USA BD | Slowpoke Pics](https://slow.pics/c/ALIAhsQf)
  ---
-  -  
+  -  [[Steins;Gate Movie - Fuka Ryouiki no Déjà vu]]
 	 - raw:  
 		 - [[Arid] Steins;Gate Complete Collection [Dual-Audio][BD 1080p FLAC] :: Nyaa](https://nyaa.si/view/1381808)
 	 - sub:
@@ -1139,7 +1139,7 @@
 	 - Comparisons:
 		 - [Summer Ghost | Slowpoke Pics](https://slow.pics/c/gbija2Ca)
  ---
-  -  
+  -  [[sword 
 	 - raw:  
 		 - [[Arid] Sword Art Online - Ordinal Scale [Dual-Audio][BDRip 1080p x264 FLAC] :: Nyaa](https://nyaa.si/view/1394144)
 		 - [[RAI] Sword Art Online the Movie -Ordinal Scale- [Dual-Audio][BDRip 1920x1080 x264 FLAC] :: Nyaa](https://nyaa.si/view/1392999)
