@@ -30,7 +30,7 @@ Colorful https://mega.nz/file/IwhBTTQB#1YoH6yjSP-9CshYzkJgnLAI9xL_Te990G0mR7wpHe
 Cowboy Bebop: Tengoku no Tobira https://slow.pics/c/OVwXAIA8 https://www.3asq.co/showthread.php?t=365196 https://subscene.com/subtitles/cowboy-bebop-the-movie-cowboy-bebop-tengoku-no-tobira/arabic/2461599 https://archive.org/details/3asqUploadTeamCowboyBebopMovieTengokuNoTobiraBD720p
 Date a Bullet https://subscene.com/subtitles/date-a-bullet-zenpen-dead-or-bullet/arabic/2459126 https://animesan-subs.blogspot.com/2021/04/date-bullet-movies-bluray.html
 Date A Live Movie: Mayuri Judgment https://subscene.com/subtitles/date-a-live-movie-mayuri-judgment/arabic/2219415 https://solarstorm-sub.blogspot.com/2018/06/date-live-mayuri-judgement-movie.html
-Dead Leaves https://es-bouz.blogspot.com/2020/04/dead-leaves.html
+=Dead Leaves https://es-bouz.blogspot.com/2020/04/dead-leaves.html
 Death Billiards https://mega.nz/file/zRUFFBTZ#RKr7qMyEvdeNrR7Psg9jY4vFRP_0hTBqC0tWom8GUa8 https://subscene.com/subtitles/death-billards/arabic/2260134
 Gekijouban Kimetsu no Yaiba: Mugen Ressha Hen https://slow.pics/c/bB6uxggs https://mugi-subs.blogspot.com/2021/06/kimetsu-no-yaiba-movie-mugen-ressha-hen.html
 Evangelion Rebuild https://nyaa.iss.ink/view/1254315 
