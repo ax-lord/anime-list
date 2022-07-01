@@ -74,7 +74,7 @@
 		 - 
 
 ---
- -  
+ -  [[Bayonetta - Bloody Fat]]
 	 - raw:  
 		 - [[Drag] Bayonetta - Bloody Fate (BD 1080p x264 10-bit FLAC) [Dual Audio] :: Nyaa](https://nyaa.si/view/1328827)
 	 - sub:
