@@ -103,7 +103,7 @@ Juubee Ninpuuchou https://www.ar-jimaku.blitedesu.net/
 No Game No Life: Zero https://subscene.com/subtitles/no-game-no-life-zero/arabic/1729406 https://mugi-subs.blogspot.com/2018/03/no-game-no-life-zero-blu-ray.html
 Ongaku https://www.theb3st.com/t75801-topic https://subscene.com/subtitles/on-gaku-our-sound-ongaku/arabic/2766915
 =One Piece: Stampede https://subscene.com/subtitles/one-piece-stampede/arabic/2738258 https://subscene.com/subtitles/one-piece-stampede/arabic/2500024 https://subscene.com/subtitles/one-piece-stampede/arabic/2162632
-Omohide Poro Poro https://nya.iss.one/view/973357
+=Omohide Poro Poro https://nya.iss.one/view/973357
 Ookii 1 Nensei to Chiisana 2 Nensei https://subscene.com/subtitles/ookii-1-nensei-to-chiisana-2-nensei/arabic/2212499
 Paprika https://slow.pics/c/jBVcAHpL https://www.scarlet-tm.com/2014/10/paprika.html  https://lucilfersubs.blogspot.com/2020/10/movie-paprika-bluray-truehd.html
 Parol no Miraijima https://subscene.com/subtitles/parol-no-miraijima/arabic/2236287
