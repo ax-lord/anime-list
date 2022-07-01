@@ -493,7 +493,7 @@
 		 - 
 
 ---
- -  [[
+ -  
 	 - raw:  
 		 - [[Arid] Her Blue Sky [BDRip 1080p x264 FLAC] :: Nyaa](https://nyaa.si/view/1388521)
 		 - [[Kaizoku] Her Blue Sky (BD 1080p AAC) [D2289DFA] (Sora no Aosa wo Shiru Hito yo) :: Nyaa](https://nyaa.si/view/1255450)
@@ -502,14 +502,14 @@
 	 - Comparisons:
 		 - [Her Blue Sky | Slowpoke Pics](https://slow.pics/c/MjPI3njy)
  ---
-  -  
+  -  [[High☆Speed! Movie - Free! Starting Days]]
 	 - raw:  
 		 - [[Commie] High Speed! Free! Starting Days [BD 1080p AAC] [C8494244].mkv :: Nyaa](https://nyaa.si/view/1106459)
 	 - sub:
 		 - 
 
 ---
- -  
+ -  [[Hotarubi no Mori e]]
 	 - raw:  
 		 - [Hotarubi no Mori e | Into the Forest of Fireflies' Light | 蛍火の杜へ [BDRip 1920x1080 x264 FLAC] [Exp] :: Nyaa](https://nyaa.si/view/1337139)
 	 - sub:
@@ -517,7 +517,7 @@
 	 - Comparisons:
 		 - [hotarubi | Slowpoke Pics](https://slow.pics/c/2diFUQ0p)
  ---
- -  
+ -  [[Howl no Ugoku Shiro]]
 	 - raw:  
 		 - [Howl's Moving Castle 2004 BluRay Remux 1080p AVC DTS-HD MA 5.1 - HiFi :: Nyaa](https://nyaa.si/view/1423361)
 	 - sub:
@@ -533,7 +533,7 @@
 		 - 
 
 ---
- -  
+ -  [[Zutto Mae kara Suki deshita - Kokuhaku Jikkou Iinkai]]
 	 - raw:  
 		 - [[Kulot] Zutto Mae kara Suki deshita. Kokuhaku Jikkou Iinkai | I've Always Liked You [BDRip 1920x1080 x264 FLAC] :: Nyaa](https://nyaa.si/view/1391375)
 	 - sub:
@@ -548,28 +548,28 @@
 		 - 
 
 ---
- -  
+ -  [[Dungeon ni Deai wo Motomeru no wa Machigatteiru Darou ka Movie - Orion no Ya]]
 	 - raw:  
 		 - [[Lulu] Is It Wrong to Try to Pick Up Girls in a Dungeon - Arrow of the Orion [BDRip 1920x1080 HEVC FLAC][Dual-Audio] :: Nyaa](https://nyaa.si/view/1401099)
 	 - sub:
 		 - 
 
 ---
- -  
+ -  [[K-On! Movie]]
 	 - raw:  
 		 - [[Kantai] K-ON! Movie (1920x1080 AAC) [61D3C37E].mkv :: Nyaa](https://nyaa.si/view/891123)
 	 - sub:
 		 - 
 
 ---
- -  
+ -  [[Koutetsujou no Kabaneri Movie 3 - Unato Kessen]]
 	 - raw:  
 		 - [[SCY] Kabaneri of the Iron Fortress: The Battle of Unato (BD 1080p Hi10 FLAC) [Dual-Audio] :: Nyaa](https://nyaa.si/view/1283147)
 	 - sub:
 		 - 
 
 ---
- -  
+ -  [[Kick-Heart]]
 	 - raw:  
 		 - [[Commie] Kick-Heart [BD 1080p AAC] [281B3EE9].mkv :: Nyaa](https://nyaa.si/view/465791)
 	 - sub:
