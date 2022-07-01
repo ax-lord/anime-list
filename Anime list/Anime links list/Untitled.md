@@ -1298,7 +1298,7 @@
 		 - [The Garden of Words - Beatrice-Raws vs D-Z0N3 vs ITBD vs JPBD vs neko-raws vs NSDAB vs Raizel vs THORA | Slowpoke Pics](https://slow.pics/c/93gorspe)
 		 - [The Garden of Words (v2) - Beatrice-Raws vs D-Z0N3 vs ITBD vs JPBD vs neko-raws vs NSDAB vs Raizel vs THORA | Slowpoke Pics](https://slow.pics/c/0scDMFeY)
  ---
-  -  
+  -  [[Toki wo Kakeru Shoujo]]
 	 - raw:  
 		 - [[UDF] The Girl Who Leapt Through Time (Toki wo Kakeru Shoujo) 2006 (BD 1080p 2xFLAC) [dual-audio] [E5869AB8] :: Nyaa](https://nyaa.si/view/1276043)
 	 - sub:
@@ -1319,7 +1319,7 @@
 		 - 
 
 ---
- -  
+ -  [[Yoru wa Mijikashi Arukeyo Otome]]
 	 - raw:  
 		 - [[Arid] Night is Short, Walk on Girl [Dual-Audio][BDRip 1920x1080 HEVC FLAC AC-3] :: Nyaa](https://nyaa.si/view/1371885)
 	 - sub:
@@ -1333,7 +1333,7 @@
 		 - 
 
 ---
- -  
+ -  [[Toaru Hikuushi e no Tsuioku]]
 	 - raw:  
 		 - [[Arid] The Princess and the Pilot [BDRip 1920x1038 x264 FLAC] | Toaru Hikuushi e no Tsuioku :: Nyaa](https://nyaa.si/view/1395168)
 	 - sub:
@@ -1349,14 +1349,14 @@
 		 - [The Secret World of Arrietty | Slowpoke Pics](https://slow.pics/c/LQ1xtD5f)
 		 - [The Secret World of Arrietty - REVO vs JPN BD/NA JPN BD vs Shout Factory USA BD vs Disney USA BD | Slowpoke Pics](https://slow.pics/c/jk9ilKr3)
  ---
-  -  
+  -  [[The Sky Crawlers]]
 	 - raw:  
 		 - [The_Sky_Crawlers_(2008)_[1080p,BluRay,x264,DTS-ES]_-_gg-THORA :: Nyaa](https://nyaa.si/view/785994)
 	 - sub:
 		 - 
 
 ---
- -  
+ -  [[Kaze Tachinu]]
 	 - raw:  
 		 - [[YURI] The Wind Rises (Kaze Tachinu) [Dual Audio_Multi Subs][BD 1080p FLAC] :: Nyaa](https://nyaa.si/view/1330094)
 		 - [The_Wind_Rises_2013_[1080p,BluRay,flac,x264]_-_THORA :: Nyaa](https://nyaa.si/view/927401)
@@ -1372,7 +1372,7 @@
 		 - 
 
 ---
- -  
+ -  [[Eve no Jikan (Movie)]]
 	 - raw:  
 		 - [[deanzel] Time of Eve - The Movie [BD 1080p Hi10p Dual Audio FLAC][bd384d18] :: Nyaa](https://nyaa.si/view/711215)
 	 - sub:
@@ -1387,14 +1387,14 @@
 		 - 
 
 ---
- -  
+ -  [[Tokyo Godfathers]]
 	 - raw:  
 		 - [[hydes] Tokyo Godfathers [USBD Remux][Dual-Audio] + Extras :: Nyaa](https://nyaa.si/view/1356516)
 	 - sub:
 		 - 
 
 ---
- -  
+ -  [[Terra e]]
 	 - raw:  
 		 - [[sam] Terra e... (1980) | Toward the Terra - Movie (BD 1080p x264 Hi10P TrueHD) :: Nyaa](https://nyaa.si/view/1417596)
 	 - sub:
@@ -1402,7 +1402,7 @@
 	 - Comparisons:
 		 - [Toward the Terra OnDeed vs Kagura | Slowpoke Pics](https://slow.pics/c/FMPTGJ0G)
  ---
-  -  
+  -  [[Trinity Seven Movie 1 - Eternity Library to Alchemic Girl]]
 	 - raw:  
 		 - [[Yoghurt] Trinity Seven - Eternity Library & Alchemic Girl [BD 1920x1080 x264 FLAC] :: Nyaa](https://nyaa.si/view/1377693)
 	 - sub:
@@ -1410,28 +1410,28 @@
 	 - Comparisons:
 		 - [unknown | Slowpoke Pics](https://slow.pics/c/6xz6YaFo)
  ---
-  -  
+  -  [[Taifuu no Noruda]]
 	 - raw:  
 		 - [[Foo] Taifuu no Noruda (BD 1080p x264 10-bit FLAC) [Dual Audio] | Typhoon Noruda :: Nyaa](https://nyaa.si/view/1342169)
 	 - sub:
 		 - 
 
 ---
- -  
+ -  [[Un-Go - Inga-ron]]
 	 - raw:  
 		 - [[Kulot] Un-Go Inga-ron [Dual-Audio][BDRip 1920x1080 x264 AAC FLAC] :: Nyaa](https://nyaa.si/view/1390947)
 	 - sub:
 		 - 
 
 ---
- -  
+ -  [[Vampire Hunter D]]
 	 - raw:  
 		 - [Vampire Hunter D (1985) [BD.1080p] [Iznjie Biznjie] [67A57413].mkv :: Nyaa](https://nyaa.si/view/720981)
 	 - sub:
 		 - 
 
 ---
- -  
+ -  [[Vampire Hunter D (2000)]]
 	 - raw:  
 		 - [Vampire Hunter D: Bloodlust (BD 1080p) [Judgment] :: Nyaa](https://nyaa.si/view/884714)
 	 - sub:
