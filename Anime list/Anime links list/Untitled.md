@@ -720,7 +720,7 @@
 	 - Comparisons:
 		 - [Millennium | Slowpoke Pics](https://slow.pics/c/Vr4yJLqs)
  ---
-  -  
+  -  [[Mind Game]]
 	 - raw:  
 		 - [[Arid] Mind Game [BDRip 1916x816 x264 FLAC] :: Nyaa](https://nyaa.si/view/1389004)
 	 - sub:
@@ -735,14 +735,14 @@
 		 - 
 
 ---
- -  
+ -  [[Sarusuberi - Miss Hokusai]]
 	 - raw:  
 		 - [[Arid] Miss Hokusai [Dual-Audio][BDRip 1920x1080 HEVC FLAC] | Sarusuberi :: Nyaa](https://nyaa.si/view/1444431)
 	 - sub:
 		 - 
 
 ---
- -  
+ -  [[Miyori no Mori]]
 	 - raw:  
 		 - [Miyori no Mori Movie (2007)(BD 1080p H264 DTS+AC3) :: Nyaa](https://nyaa.si/view/1121061)
 	 - sub:
