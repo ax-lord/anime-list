@@ -151,7 +151,7 @@
 		 - 
 
 ---
- -  [[lapu
+ -  
 	 - raw:  
 		 - [[hydes] Laputa: Castle in the Sky v2 [JPBD Remux][Dual-Audio]『Ghibli Project』 :: Nyaa](https://nyaa.si/view/1502230)
 	 - sub:
@@ -159,7 +159,7 @@
 	 - Comparisons:
 		 - [Laputa Castle in the Sky 2: Electric Boogaloo - THORA (Uses NCs) vs ZQ (Encode) vs JPN BD vs JPN MGVC BD vs USA Shout Factory BD vs USA BD | Slowpoke Pics](https://slow.pics/c/PrAd69yG)
  ---
-  -  
+  -  [[Cencoroll Connect]]
 	 - raw:  
 		 - [[PAS] Cencoroll Connect (BD 1080p AAC) [17123C52].mkv :: Nyaa](https://nyaa.si/view/1257506)
 	 - sub:
