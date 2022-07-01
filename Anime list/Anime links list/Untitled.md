@@ -21,15 +21,15 @@
 		 - [A Letter to Momo | Slowpoke Pics](https://slow.pics/c/RyD0d1el)
  
  ---
-  -  [[Koe no Katachi ]]
+ -  [[Koe no Katachi]]
 	 - raw:  
 		 - [[Kametsu] A Silent Voice (BD 1080p HI10 FLAC) [Dual-Audio] ](https://nyaa.si/view/983165)
-		 - [[Arid] A Silent Voice v2 [Dual-Audio][BD 1920x1036 x264 FLAC DTS-HD MA] :: Nyaa](https://nyaa.si/view/1378894)
+		 - [[Arid] A Silent Voice v2 [Dual-Audio][BD 1920x1036 x264 FLAC] ](https://nyaa.si/view/1378894)
 	 - sub:
 		 - 
 	 - Comparisons:
 		 - [A Silent Voice | Slowpoke Pics](https://slow.pics/c/q7erUl0S)
-		 - [unknown | Slowpoke Pics](https://slow.pics/c/DIbTimRA)
+
  ---
   -  [[Accel World - Infinite∞Burst]]
 	 - raw:  
