@@ -58,7 +58,7 @@ Hanasaku Iroha: Home Sweet Home https://rhythm-sub.com/2020/07/18/hanasaku-iroha
 Dounika Naru Hibi https://subscene.com/subtitles/dounika-naru-hibi-happy-go-lucky-days/arabic/2524969
 Harmonie https://subscene.com/subtitles/harmonie/arabic/1264843 https://subscene.com/subtitles/harmonie/arabic/2322842
 Harmony https://subscene.com/subtitles/harmony/arabic/1842889
-Run! White Wolf https://tsubasanime.blogspot.com/2021/05/hashire-shiroi-ookami.html
+=Run! White Wolf https://tsubasanime.blogspot.com/2021/05/hashire-shiroi-ookami.html
 Hello World https://drive.google.com/drive/folders/17Z2DtVe8IKnkIDlvzeOYC76jvUixROvF
 HELLS https://subscene.com/subtitles/hells/arabic/2268405?status=retry
 Sora no Aosa wo Shiru Hito yo https://subscene.com/subtitles/her-blue-sky/arabic/2236187 http://mohbaboo-subs.win/sora-no-aosa-wo-shiru-hito-yo-bluray/
