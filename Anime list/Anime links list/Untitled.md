@@ -1231,7 +1231,7 @@
 	 - Comparisons:
 		 - [Boundary Of Emptiness: The Garden Of Sinners | Slowpoke Pics](https://slow.pics/c/mtlrVdye)
  ---
-  -  [[kara
+  -  [[kara no
 	 - raw:  
 		 - [[ANE] Kara no Kyoukai [BDRip 1080p x264 FLAC] :: Nyaa](https://nyaa.si/view/264295)
 	 - sub:
