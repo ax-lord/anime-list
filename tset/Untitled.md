@@ -5,7 +5,7 @@ Byousoku 5 Centimeter https://www.3asq.co/showthread.php?t=369891 https://assass
 Momo e no Tegami  https://slow.pics/c/RyD0d1el https://archive.org/details/DevilsFansubsMomoENoTegami10803E250E7F https://subscene.com/subtitles/a-letter-to-momo/arabic/794223 https://subscene.com/subtitles/a-letter-to-momo/arabic/706507?status=retry
 Koe no Katachi "https://slow.pics/c/q7erUl0S https://slow.pics/c/DIbTimRA" https://ddl.assassinssub.org/Movies/01%20Koe%20No%20Katachi/ https://goo.gl/MuFCsg https://drakou-subs.blogspot.com/2017/05/koe-no-katachi-movie.html
 Accel World: Infinite∞Burst https://subscene.com/subtitles/accel-world-infinite-burst/arabic/1589909
-AKIRA https://kuroko-subs.blogspot.com/2014/11/akira-bluray.html
+=AKIRA https://kuroko-subs.blogspot.com/2014/11/akira-bluray.html
 Tenshi no Tamago https://slow.pics/c/pDHv4sFI https://lucilfersubs.blogspot.com/2020/10/movie-tenshi-no-tamago-bluray.html
 Waga Seishun no Arcadia https://athbul-khayal.net/waga-seishun-no-arcadiablu-ray/
 Asura https://subscene.com/subtitles/asura/arabic/2490617
