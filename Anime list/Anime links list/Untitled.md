@@ -660,14 +660,14 @@
 		 - 
 
 ---
- -  
+ -  [[Chuunibyou demo Koi ga Shitai! Movie - Take On Me]]
 	 - raw:  
 		 - [[YURI] Love, Chunibyo & Other Delusions! The Movie - Take on Me | Chuunibyou demo Koi ga Shitai Take On Me [BD 1080p x264 FLAC][Dual-Audio] :: Nyaa](https://nyaa.si/view/1411505)
 	 - sub:
 		 - 
 
 ---
- -  
+ -  [[Yoake Tsugeru Lu no Uta]]
 	 - raw:  
 		 - [[MTBB] Lu Over the Wall – Yoake Tsugeru Lu no Uta (BD 1080p) :: Nyaa](https://nyaa.si/view/1095893)
 	 - sub:
@@ -675,7 +675,7 @@
 	 - Comparisons:
 		 - [Lu Over The Wall | Slowpoke Pics](https://slow.pics/c/pcZOJNuw)
  ---
-  -  
+  -  [[Made in Abyss Movie 3 - Fukaki Tamashii no Reimei]]
 	 - raw:  
 		 - [[Arid] Made in Abyss - Dawn of the Deep Soul [Dual-Audio][BD 1080p x264 FLAC] | Fukaki Tamashii no Reimei :: Nyaa](https://nyaa.si/view/1387784)
 	 - sub:
@@ -705,7 +705,7 @@
 	 - Comparisons:
 		 - 
  ---
-  -  
+  -  [[Metropolis]]
 	 - raw:  
 		 - [Metropolis (BD 720p) [Afro] (revised) :: Nyaa](https://nyaa.si/view/468531)
 	 - sub:
