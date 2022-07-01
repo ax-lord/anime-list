@@ -167,7 +167,7 @@
 		 - 
 
 ---
- -  
+ -  [[Kaijuu no Kodomo]]
 	 - raw:  
 		 - [[Kaizoku] Children of the Sea (BD 1080p AAC) [02C51EE9] (Kaijuu no Kodomo) :: Nyaa](https://nyaa.si/view/1348837)
 		 - [[Drag] Kaijuu no Kodomo v2 (BD 1080p x264 10-bit FLAC) [Dual Audio] | Children of the Sea :: Nyaa](https://nyaa.si/view/1366300)
@@ -175,7 +175,7 @@
 		 - 
 
 ---
- -  
+ -  [[Hoshi wo Ou Kodomo]]
 	 - raw:  
 		 - [Hoshi_wo_Ou_Kodomo_(2011)_[1080p,BluRay,DTS,x264]_-_THORA :: Nyaa](https://nyaa.si/view/927425)
 	 - sub:
@@ -189,14 +189,14 @@
 		 - 
 
 ---
- -  
+ -  [[Clannad Movie]]
 	 - raw:  
 		 - [[Raws-Maji] Clannad Movie / 劇場版 クラナド [BDRip 1920x1080 HEVC AAC] :: Nyaa](https://nyaa.si/view/1359109)
 	 - sub:
 		 - 
 
 ---
- -  
+ -  [[Code Geass - Fukkatsu no Lelouch]]
 	 - raw:  
 		 - [[YURI] Code Geass Lelouch of the Resurrection (Code Geass Fukkatsu no Lelouch) (Dual Audio) [BD 1080p HEVC FLAC] :: Nyaa](https://nyaa.si/view/1379388)
 	 - sub:
@@ -204,14 +204,14 @@
 	 - Comparisons:
 		 - [Code Geass: Lelouch of the Re;surrection | Slowpoke Pics](https://slow.pics/c/M8HXTON6)
  ---
-  -  
+  -  [[Colorful (Movie)]]
 	 - raw:  
 		 - [[YURI] Colorful (2010) [BD 1080p HEVC Flac][Dual Audio] v2 :: Nyaa](https://nyaa.si/view/1339083)
 	 - sub:
 		 - 
 
 ---
- -  
+ -  [[Cowboy Bebop - Tengoku no Tobira]]
 	 - raw:  
 		 - [[Arid] Cowboy Bebop: The Movie - Knockin' on Heaven's Door v2 [Dual-Audio][BD 1916x1040 x264 FLAC] :: Nyaa](https://nyaa.si/view/1367795)
 	 - sub:
@@ -219,14 +219,14 @@
 	 - Comparisons:
 		 - [Cowboy Bebop The Movie - ITBD vs JPBD Full Comp | Slowpoke Pics](https://slow.pics/c/OVwXAIA8)
  ---
-  -  
+  -  [[Date A Bullet - Dead or Bullet]]
 	 - raw:  
 		 - [[Yoghurt] Date A Bullet [BD 1920x1080 x264 FLAC] :: Nyaa](https://nyaa.si/view/1391311)
 	 - sub:
 		 - 
 
 ---
- -  
+ -  [[Date A Live Movie - Mayuri Judgment]]
 	 - raw:  
 		 - [[Yoghurt] Date a Live - Mayuri Judgement [BD 1920x1080 x264 FLAC] :: Nyaa](https://nyaa.si/view/1384094)
 	 - sub:
@@ -240,14 +240,14 @@
 		 - 
 
 ---
- -  
+ -  [[Death Billiards]]
 	 - raw:  
 		 - [[BKC] Death Billiards (2013) (BD 1080p x264 Hi10P FLAC) :: Nyaa](https://nyaa.si/view/1546960)
 	 - sub:
 		 - 
 
 ---
- -  
+ -  [[Kimetsu no Yaiba Movie - Mugen Ressha-hen]]
 	 - raw:  
 		 - [[TTGA] Demon Slayer -Kimetsu no Yaiba- The Movie: Mugen Train (2020) [HYBRID BDRemux] [1080p Dual Audio DTS-HD MA AVC] (Kimetsu no Yaiba Movie: Mugen Ressha-hen) :: Nyaa](https://nyaa.si/view/1468782)
 		 - [[Kaizoku] Demon Slayer - Infinity Train (BD 1080p AAC) [D9A651A7] (Kimetsu no Yaiba Movie: Mugen Ressha Hen) :: Nyaa](https://nyaa.si/view/1401812)
@@ -257,28 +257,28 @@
 	 - Comparisons:
 		 - [Demon Slayer - Infinity Train | Slowpoke Pics](https://slow.pics/c/bB6uxggs)
  ---
-  -  
+  -  [[Neon Genesis Evangelion - The End of Evangelion]]
 	 - raw:  
 		 - [[ARC] Neon Genesis Evangelion - End of Evangelion (1997) [BD 1080p FLAC][Dual-Audio] :: Nyaa](https://nyaa.si/view/1337085)
 	 - sub:
 		 - 
 
 ---
- -  
+ -  [[Evangelion - 10 You Are (Not) Alone]]
 	 - raw:  
 		 - [[Baws] Evangelion 1.11: You Are (Not) Alone v2 (1080p BD HEVC FLAC) :: Nyaa](https://nyaa.si/view/1377771)
 	 - sub:
 		 - 
 
 ---
- -  
+ -  [[Evangelion - 20 You Can (Not) Advance]]
 	 - raw:  
 		 - [[Baws] Evangelion 2.22: You Can (Not) Advance (1080p BD HEVC FLAC) :: Nyaa](https://nyaa.si/view/1378305)
 	 - sub:
 		 - 
 
 ---
- -  
+ -  [[Evangelion - 30 You Can (Not) Redo]]
 	 - raw:  
 		 - [[Baws] Evangelion 3.33: You Can (Not) Redo (1080p BD HEVC FLAC) :: Nyaa](https://nyaa.si/view/1378251)
 	 - sub:
@@ -302,7 +302,7 @@
 	 - Comparisons:
 		 - [illya movie | Slowpoke Pics](https://slow.pics/c/Zw5JfBDD)
  ---
-  -  
+  -  [[Fatestay night Movie - Heaven's Feel - I Presage Flower]]
 	 - raw:  
 		 - [[SneedSplit] Fate/stay night: Heaven's Feel I. - Presage Flower (BD 1080p Hi10 FLAC) [Dual-Audio] :: Nyaa](https://nyaa.si/view/1440459)
 	 - sub:
@@ -312,7 +312,7 @@
 		 - [FHF 1 | Slowpoke Pics](https://slow.pics/c/OJWmGI5P)
 		 - [Fate Stay Night Heaven's Feel I. - Presage Flower | Slowpoke Pics](https://slow.pics/c/vXFOcJoQ)
  ---
-  -  
+  -  [[Fatestay night Movie - Heaven's Feel - II Lost Butterfly]]
 	 - raw:  
 		 - [[Kaleido-SCY] Fate Stay Night Heaven's Feel (BD 1080p Hi10 FLAC) [Dual-Audio] :: Nyaa](https://nyaa.si/view/1391529)
 	 - sub:
@@ -320,7 +320,7 @@
 	 - Comparisons:
 		 - [unknown | Slowpoke Pics](https://slow.pics/c/0IR9UBFD)
  ---
-  -  
+  -  [[fate
 	 - raw:  
 		 - [[Kaleido-SCY] Fate Stay Night Heaven's Feel (BD 1080p Hi10 FLAC) [Dual-Audio] :: Nyaa](https://nyaa.si/view/1391529)
 	 - sub:
