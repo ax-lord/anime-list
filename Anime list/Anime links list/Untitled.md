@@ -756,7 +756,7 @@
 		 - 
 
 ---
- -  
+ -  [[Boku no Hero Academia the Movie 1 - Futari no Hero]]
 	 - raw:  
 		 - [[Galator] My Hero Academia - Movie 01 - Two Heroes (BD 1080p x264 10-bit FLAC) [Dual-Audio] (Boku no Hero Academia: Futari no Hero) :: Nyaa](https://nyaa.si/view/1142603)
 		 - [[neko-kBaraka] Boku no Hero Academia the Movie - Two Heroes [BD][1080p][FLAC] [2AAAEAF9].mkv :: Nyaa](https://nyaa.si/view/1134646)
@@ -773,14 +773,14 @@
 	 - Comparisons:
 		 - [My Neighbor Totoro - THORA v2 (Uses NCs) vs REVO vs JPN BD (Studio Ghibli Collection) vs JPN MGVC BD vs USA Disney BD (Has no b frames) | Slowpoke Pics](https://slow.pics/c/hccZLgSV)
  ---
-  -  
+  -  [[Natsume Yuujinchou Movie - Utsusemi ni Musubu]]
 	 - raw:  
 		 - [[CyC] Natsume Yuujinchou Movie - Utsusemi ni Musubu (BD 1080p Hi10 x264 FLAC) :: Nyaa](https://nyaa.si/view/1204457)
 	 - sub:
 		 - 
 
 ---
- -  
+ -  [[Kaze no Tani no Nausicaä]]
 	 - raw:  
 		 - [[hydes] Nausicaa / Nausicaä of the Valley of the Wind (1984) v2 [2014 JPBD Remux][Dual-Audio]『Ghibli Project』 :: Nyaa](https://nyaa.si/view/1425023)
 		 - [[Arid] Nausicaa of the Valley of the Wind [Dual-Audio][BD 1920x1038 x264 FLAC] :: Nyaa](https://nyaa.si/view/1373590)
@@ -796,14 +796,14 @@
 		 - 
 
 ---
- -  
+ -  [[No Game No Life - Zero]]
 	 - raw:  
 		 - [[YURI] No Game No Life Zero (Dual Audio)[BD 1080p x264 10bits Flac] :: Nyaa](https://nyaa.si/view/1347711)
 	 - sub:
 		 - 
 
 ---
- -  
+ -  [[Ongaku]]
 	 - raw:  
 		 - [[Kobujutsu] On-gaku (BD 1080p) [910D981F].mkv :: Nyaa](https://nyaa.si/view/1406126)
 	 - sub:
@@ -825,14 +825,14 @@
 	 - Comparisons:
 		 - [Only Yesterday - Fussior vs JPN BD | Slowpoke Pics](https://slow.pics/c/wPT33gWN)
  ---
-  -  
+  -  [[Ookii 1 Nensei to Chiisana 2 Nensei]]
 	 - raw:  
 		 - [Ookii 1 Nensei to Chiisana 2 Nensei (Anime Mirai 2014) 1280x720 MKV remux :: Nyaa](https://nyaa.si/view/586396)
 	 - sub:
 		 - 
 
 ---
- -  
+ -  [[Paprika]]
 	 - raw:  
 		 - [[Baws] Paprika (BD 1080p Hi10 FLAC) :: Nyaa](https://nyaa.si/view/1501993)
 	 - sub:
@@ -840,14 +840,14 @@
 	 - Comparisons:
 		 - [Paprika [Baws] vs [Kagura] vs UKBD | Slowpoke Pics](https://slow.pics/c/tg00W0c7)
  ---
-  -  
+  -  [[Parol no Miraijima]]
 	 - raw:  
 		 - [Parol no Miraijima [BD 1080p FLAC][Orphan] :: Nyaa](https://nyaa.si/view/728159)
 	 - sub:
 		 - 
 
 ---
- -  
+ -  [[pate
 	 - raw:  
 		 - [[deanzel] Patema Inverted [BD 1080p Hi10p Dual Audio FLAC][afa8a83e] :: Nyaa](https://nyaa.si/view/713419)
 		 - [[Arid] Patema Inverted [Dual-Audio][BDRip 1920x1080 Hi10 FLAC] :: Nyaa](https://nyaa.si/view/1540690)
