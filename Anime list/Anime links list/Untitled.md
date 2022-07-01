@@ -23,7 +23,7 @@
  ---
   -  [[Koe no Katachi ]]
 	 - raw:  
-		 - [[Kametsu] A Silent Voice (BD 1080p HI10 FLAC) [Dual-Audio] :: Nyaa](https://nyaa.si/view/983165)
+		 - [[Kametsu] A Silent Voice (BD 1080p HI10 FLAC) [Dual-Audio] ](https://nyaa.si/view/983165)
 		 - [[Arid] A Silent Voice v2 [Dual-Audio][BD 1920x1036 x264 FLAC DTS-HD MA] :: Nyaa](https://nyaa.si/view/1378894)
 	 - sub:
 		 - 
