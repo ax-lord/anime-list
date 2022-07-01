@@ -1,4 +1,4 @@
- -  [[Byousoku 5 Centimeter]]
+ -  [[Byousoku 5 Centimete]]
 	 - raw:  
 		 - [[Arid] 5 Centimeters per Second [Dual-Audio][BDRip 1920x1080 Hi10 FLAC] | Byousoku 5 Centimeter](https://nyaa.si/view/1472870)
 	 - sub:
@@ -12,7 +12,7 @@
 		 - 
 
 ---
- - [[Momo e no Tegami ]]
+ - [[Momo e no Tegami]]
 	 - raw:  
 		 - [[Arid] A Letter to Momo [Dual-Audio][BDRip 1920x1080 x264 FLAC] | Momo e no Tegami](https://nyaa.si/view/1473153)
 	 - sub:
