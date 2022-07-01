@@ -961,42 +961,42 @@
 	 - Comparisons:
 		 - [Promare Beatrice VS ITA BD | Slowpoke Pics](https://slow.pics/c/7eVdQUyf)
  ---
-  -  [[
+  -  [[Nerawareta Gakuen]]
 	 - raw:  
 		 - [[YURI] Psychic School Wars (Nerawareta Gakuen) (Dual Audio)[BD 1080p HEVC FLAC] :: Nyaa](https://nyaa.si/view/1384121)
 	 - sub:
 		 - 
 
 ---
- -  
+ -  [[Psycho-Pass - Sinners of the System Case2 - First Guardian]]
 	 - raw:  
 		 - [[D3] Psycho-Pass - Sinners of the System (BD 1080p Hi10 FLAC) :: Nyaa](https://nyaa.si/view/1202730)
 	 - sub:
 		 - 
 
 ---
- -  
+ -  [[Psycho-Pass Movie]]
 	 - raw:  
 		 - [[SCY] Psycho-Pass: The Movie (2015) (BD 1080p Hi10 FLAC) [Dual-Audio] :: Nyaa](https://nyaa.si/view/1155224)
 	 - sub:
 		 - 
 
 ---
- -  
+ -  [[Mahou Shoujo Madoka★Magica Movie 1 - Hajimari no Monogatari]]
 	 - raw:  
 		 - [[Arid] Puella Magi Madoka Magica the Movie Trilogy [Dual-Audio][BDRip 1920x1080 HEVC FLAC DTS] | Mahou Shoujo Madoka Magica :: Nyaa](https://nyaa.si/view/1422337)
 	 - sub:
 		 - 
 
 ---
- -  
+ -  [[Mahou Shoujo Madoka★Magica Movie 2 - Eien no Monogatari]]
 	 - raw:  
 		 - [[Arid] Puella Magi Madoka Magica the Movie Trilogy [Dual-Audio][BDRip 1920x1080 HEVC FLAC DTS] | Mahou Shoujo Madoka Magica :: Nyaa](https://nyaa.si/view/1422337)
 	 - sub:
 		 - 
 
 ---
- -  
+ -  [[Mahou Shoujo Madoka★Magica Movie 3 - Hangyaku no Monogatari]]
 	 - raw:  
 		 - [[Arid] Puella Magi Madoka Magica the Movie Trilogy [Dual-Audio][BDRip 1920x1080 HEVC FLAC DTS] | Mahou Shoujo Madoka Magica :: Nyaa](https://nyaa.si/view/1422337)
 		 - [[Noyr] Mahou Shoujo Madoka☆Magica Hangyaku no Monogatari [BDRip 1920x1080 HEVC FLAC] :: Nyaa](https://nyaa.si/view/1380616)
@@ -1004,14 +1004,14 @@
 		 - 
 
 ---
- -  
+ -  [[Seishun Buta Yarou wa Yumemiru Shoujo no Yume wo Minai]]
 	 - raw:  
 		 - [[YURI] Rascal Does Not Dream of a Dreaming Girl (Seishun Buta Yarou wa Yumemiru Shoujo no Yume o Minai) [BD 1080p FLAC] :: Nyaa](https://nyaa.si/view/1329927)
 	 - sub:
 		 - 
 
 ---
- -  
+ -  [[Redline]]
 	 - raw:  
 		 - [[hydes] Redline [ITBD Remux][Dual-Audio] + OST & Extras :: Nyaa](https://nyaa.si/view/1339636)
 	 - sub:
@@ -1019,7 +1019,7 @@
 	 - Comparisons:
 		 - [Redline comparisons | Slowpoke Pics](https://slow.pics/c/CAGP9utl)
  ---
- -  
+ -  [[Kimi to Nami ni Noretara]]
 	 - raw:  
 		 - [[RAI] Ride Your Wave [Dual-Audio][BDRip 1920x1080 HEVC FLAC] :: Nyaa](https://nyaa.si/view/1401592)
 		 - [[Arid] Ride Your Wave [Dual-Audio][BDRip 1920x1080 x264 FLAC] :: Nyaa](https://nyaa.si/view/1390157)
