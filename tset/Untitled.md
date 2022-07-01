@@ -75,7 +75,7 @@ Kick-Heart https://subscene.com/subtitles/kick-heart/arabic/1015726
 Majo no Takkyuubin https://subscene.com/subtitles/kikis-delivery-service-majo-no-takkyubin/arabic/1147595 
 Kiniro Mosaic: Pretty Days https://subscene.com/subtitles/kiniro-mosaic-pretty-days/arabic/1534038
 Kizumonogatari https://mugi-subs.blogspot.com/2016/07/kizumonogatari-i-tekketsu-hen-blu-ray.html https://subscene.com/subtitles/kizumonogatari-part-1-tekketsu/arabic/2520531 https://subscene.com/subtitles/kizumonogatari-part-2-nekketsu-hen/arabic/2520533 https://subscene.com/subtitles/kizumonogatari-iii-reiketsu-hen/arabic/2520534 
-"Kono Subarashii Sekai ni Shukufuku wo! Kurenai Densetsu" https://slow.pics/c/9NujIPzB https://subscene.com/subtitles/kono-subarashii-sekai-ni-shukufuku-wo-kurenai-densetsu-konosuba-movie/arabic/2222750 https://subscene.com/subtitles/kono-subarashii-sekai-ni-shukufuku-wo-kurenai-densetsu-konosuba-movie/arabic/2181349
+="Kono Subarashii Sekai ni Shukufuku wo! Kurenai Densetsu" https://slow.pics/c/9NujIPzB https://subscene.com/subtitles/kono-subarashii-sekai-ni-shukufuku-wo-kurenai-densetsu-konosuba-movie/arabic/2222750 https://subscene.com/subtitles/kono-subarashii-sekai-ni-shukufuku-wo-kurenai-densetsu-konosuba-movie/arabic/2181349
 Kud Wafter https://slow.pics/c/NeRN34IF https://next-generation-team1.blogspot.com/2021/02/kud-wafter-ova.html 
 Toshokan Sensou꞉ Kakumei no Tsubasa https://subscene.com/subtitles/toshokan-sensou-kakumei-no-tsubasa/arabic/754171
 Choujin Locke https://subscene.com/subtitles/choujin-locke-locke-the-superman/arabic/1435680
