@@ -442,7 +442,7 @@
 		 - 
 
 ---
- -  
+ -  [[Hanasaku Iroha Movie - Home Sweet Home]]
 	 - raw:  
 		 - [[YURI] Hanasaku Iroha - Home Sweet Home (2013) [BD 1080p x264 10bit Flac] :: Nyaa](https://nyaa.si/view/1340600)
 	 - sub:
@@ -456,14 +456,14 @@
 		 - 
 
 ---
- -  
+ -  [[Harmonie]]
 	 - raw:  
 		 - [[YURI] Harmonie [BD 1080p x264 10bit FLAC] :: Nyaa](https://nyaa.si/view/1382769)
 	 - sub:
 		 - 
 
 ---
- -  
+ -  [[Harmony]]
 	 - raw:  
 		 - [[BAD] Harmony [Dual-Audio][BDRip 1920x1080 Hi10 FLAC] :: Nyaa](https://nyaa.si/view/1409847)
 	 - sub:
@@ -477,7 +477,7 @@
 		 - 
 
 ---
- -  
+ -  [[Hello World]]
 	 - raw:  
 		 - [[Pookie] Hello World [BD 1920x1080 HEVC TrueHD-FLAC] :: Nyaa](https://nyaa.si/view/1386551)
 	 - sub:
@@ -485,7 +485,7 @@
 	 - Comparisons:
 		  - [Hello World | Slowpoke Pics](https://slow.pics/c/8d2FlPSh)
 ---
- -  
+ -  [[Hells]]
 	 - raw:  
 		 - [[Saizen]_Hells_[1080p][Blu-Ray][3CC4E835].mkv :: Nyaa](https://nyaa.si/view/768876)
 		 - [[LazyMux] Hells (BD 1080p Hi10 FLAC) [Dual-Audio] :: Nyaa](https://nyaa.si/view/1122212)
@@ -493,7 +493,7 @@
 		 - 
 
 ---
- -  
+ -  [[
 	 - raw:  
 		 - [[Arid] Her Blue Sky [BDRip 1080p x264 FLAC] :: Nyaa](https://nyaa.si/view/1388521)
 		 - [[Kaizoku] Her Blue Sky (BD 1080p AAC) [D2289DFA] (Sora no Aosa wo Shiru Hito yo) :: Nyaa](https://nyaa.si/view/1255450)
