@@ -188,7 +188,7 @@ Steamboy
 Junkers Come Here
 Happy Birthday: Inochi Kagayaku Toki
 Chikyuu ga Ugoita Hi
-Summer Wars
+=Summer Wars
 Nitaboh
 Spriggan
 Ohoshi-sama no Rail (Rail of the Star: A True Story of Children)
