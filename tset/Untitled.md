@@ -24,7 +24,7 @@ Cencoroll Connect https://raigekisubs.wordpress.com/2022/05/02/cencoroll-connect
 Kaijuu no Kodomo https://slow.pics/c/tPEN5sJk https://ddl.assassinssub.org/Movies/11%20Kaijuu%20No%20Kodomo/ https://subscene.com/subtitles/children-of-the-sea/arabic/2149039
 Hoshi wo Ou Kodomo  https://subscene.com/subtitles/children-who-chase-lost-voices-from-deep-below-hoshi-o-ou-kodomo/arabic/1420316
 =Kuro no Sumika https://mfansub-anime.blogspot.com/2020/05/chronus-bluray.html 
-ؤ https://subscene.com/subtitles/clannad-the-motion-picture/arabic/1061021
+Clannad https://subscene.com/subtitles/clannad-the-motion-picture/arabic/1061021
 Code Geass: Fukkatsu no Lelouch https://slow.pics/c/M8HXTON6 https://mega.nz/file/HjYjWCKI#mRI-jBvznyhhOCt1IeTNtQp9ZX2uOl1T9Lkhzwx7JkE https://subscene.com/subtitles/code-geass-fukkatsu-no-lelouch/arabic/2794002 https://mega.nz/file/yzYDSSqS#htxBUzLKyui3ZYVxLUJF7IdAVdfFjMT_LK_i5AUco8Q
 Colorful https://mega.nz/file/IwhBTTQB#1YoH6yjSP-9CshYzkJgnLAI9xL_Te990G0mR7wpHeJc https://subscene.com/subtitles/colorful-karafuru/arabic/983096
 Cowboy Bebop: Tengoku no Tobira https://slow.pics/c/OVwXAIA8 https://www.3asq.co/showthread.php?t=365196 https://subscene.com/subtitles/cowboy-bebop-the-movie-cowboy-bebop-tengoku-no-tobira/arabic/2461599 https://archive.org/details/3asqUploadTeamCowboyBebopMovieTengokuNoTobiraBD720p
