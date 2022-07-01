@@ -125,7 +125,7 @@ Mahou Shoujo Madoka☆Magica Movies https://rhythm-sub.com/2020/01/16/mahou-shou
 "Seishun Buta Yarou wa Yumemiru Shoujo no Yume wo Minai" https://subscene.com/subtitles/rascal-does-not-dream-of-a-dreaming-girl-seishun-buta-yarou-wa-yumemiru-shoujo-no-yume-wo-minai/arabic/2122492 https://es-bouz.blogspot.com/2020/01/aobuta-movie.html https://subscene.com/subtitles/rascal-does-not-dream-of-a-dreaming-girl-seishun-buta-yarou-wa-yumemiru-shoujo-no-yume-wo-minai/arabic/2092604
 REDLINE https://slow.pics/c/CAGP9utl https://subscene.com/subtitles/redline-2009/arabic/2181017 https://subscene.com/subtitles/redline-2009/arabic/549501
 Kimi to, Nami ni Noretara https://slow.pics/c/NON0EKNE https://www.winoxa.info/2020/01/kimi-to-nami-ni-noretara-ride-your-wave.html
-Riding Bean https://slow.pics/c/B4UPRQvx https://subscene.com/subtitles/riding-bean/arabic/1973098 https://subscene.com/subtitles/riding-bean/arabic/2388174
+=Riding Bean https://slow.pics/c/B4UPRQvx https://subscene.com/subtitles/riding-bean/arabic/1973098 https://subscene.com/subtitles/riding-bean/arabic/2388174
 Ryo http://www.dacsubs.com/2013/07/blu-ray-ryo.html https://subscene.com/subtitles/anime-mirai-ryo/arabic/2212504
 Saenai Heroine no Sodatekata Fine https://slow.pics/c/KWquurr4 https://www.winoxa.info/2020/11/saenai-heroine-no-sodatekata-fine.html
 Youjo Senki https://subscene.com/subtitles/youjo-senki-movie-rus-sub/arabic/2045531 https://subscene.com/subtitles/youjo-senki-movie-rus-sub/arabic/2510258
