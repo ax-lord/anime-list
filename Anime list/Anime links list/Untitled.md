@@ -152,7 +152,7 @@
 		 - 
 
 ---
- -  
+ -  [[Tenkuu no Shiro Laputa]]
 	 - raw:  
 		 - [[hydes] Laputa: Castle in the Sky v2 [JPBD Remux][Dual-Audio]『Ghibli Project』 :: Nyaa](https://nyaa.si/view/1502230)
 	 - sub:
