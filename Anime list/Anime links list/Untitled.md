@@ -5,14 +5,14 @@
 		 - 
 
 ---
- -  
+ -  [[Toaru Majutsu no Index Movie - Endymion no Kiseki]]
 	 - raw:  
 		 - [[YURI] A Certain Magical Index the Movie: The Miracle of Endymion (Toaru Majutsu no Index Movie: Endymion no Kiseki) (Dual Audio)[BD 1080p x264 FLAC] ](https://nyaa.si/view/1391379)
 	 - sub:
 		 - 
 
 ---
- -  
+ - [[Momo e no Tegami ]]
 	 - raw:  
 		 - [[Arid] A Letter to Momo [Dual-Audio][BDRip 1920x1080 x264 FLAC] | Momo e no Tegami](https://nyaa.si/view/1473153)
 	 - sub:
@@ -21,7 +21,7 @@
 		 - [A Letter to Momo | Slowpoke Pics](https://slow.pics/c/RyD0d1el)
  
  ---
-  -  
+  -  [[Koe no Katachi ]]
 	 - raw:  
 		 - [[Kametsu] A Silent Voice (BD 1080p HI10 FLAC) [Dual-Audio] :: Nyaa](https://nyaa.si/view/983165)
 		 - [[Arid] A Silent Voice v2 [Dual-Audio][BD 1920x1036 x264 FLAC DTS-HD MA] :: Nyaa](https://nyaa.si/view/1378894)
@@ -31,7 +31,7 @@
 		 - [A Silent Voice | Slowpoke Pics](https://slow.pics/c/q7erUl0S)
 		 - [unknown | Slowpoke Pics](https://slow.pics/c/DIbTimRA)
  ---
-  -  
+  -  [[Accel World - Infinite∞Burst]]
 	 - raw:  
 		 - [[SOLA] Accel World: Infinite Burst (2016) - Movie (BD 1080p x264 Hi10P FLAC 5.1 Dual Audio) :: Nyaa](https://nyaa.si/view/1418121)
 	 - sub:
@@ -45,7 +45,7 @@
 		 - 
 
 ---
- -  
+ -  [[Tenshi no Tamago ]]
 	 - raw:  
 		 - [[hydes] Tenshi No Tamago (Angel's Egg) JPBD Remux｜2xAudio/2xSub :: Nyaa](https://nyaa.si/view/1328570)
 	 - sub:
@@ -53,21 +53,21 @@
 	 - Comparisons:
 		 - [Tenshi No Tamago comparisons | Slowpoke Pics](https://slow.pics/c/pDHv4sFI)
  ---
- -  
+ -  [[Waga Seishun no Arcadia ]]
 	 - raw:  
 		 - [[BBT-RMX] Waga Seishun no Arcadia (1982) | Arcadia of My Youth - Movie (BD 1080p x264 Hi10P FLAC) :: Nyaa](https://nyaa.si/view/1417621)
 	 - sub:
 		 - 
 
 ---
- -  
+ -  [[Asura ]]
 	 - raw:  
 		 - [[Netaro] Asura [BD 1080p HEVC 5.1 FLAC] :: Nyaa](https://nyaa.si/view/1486125)
 	 - sub:
 		 - 
 
 ---
- -  
+ - [[Aura - Maryuuin Kouga Saigo no Tatakai ]] 
 	 - raw:  
 		 - [[Watashi]_Aura_-_Maryuuinkouga_Saigo_no_Tatakai_[BD][h264-1080p][FLAC][6CFEEA64].mkv :: Nyaa](https://nyaa.si/view/477163)
 	 - sub:
