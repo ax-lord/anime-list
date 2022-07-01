@@ -195,7 +195,7 @@
 		 - 
 
 ---
- -  
+ -  [
 	 - raw:  
 		 - [[YURI] Code Geass Lelouch of the Resurrection (Code Geass Fukkatsu no Lelouch) (Dual Audio) [BD 1080p HEVC FLAC] :: Nyaa](https://nyaa.si/view/1379388)
 	 - sub:
