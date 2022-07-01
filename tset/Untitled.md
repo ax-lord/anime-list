@@ -142,7 +142,7 @@ Ged Senki https://subscene.com/subtitles/tales-from-earthsea-gedo-senki/arabic/8
 Tamako Love Story https://slow.pics/c/Yx8XfkNC https://sawada-sub.blogspot.com/2021/07/tamako-love-story.html https://subscene.com/subtitles/tamako-love-story/arabic/2106358
 Tekkon Kinkreet https://www.scarlet-tm.com/2018/07/tekkon-kinkret-movie-bluray.html
 Kokoro ga Sakebitagatterunda. https://rhythm-sub.com/2020/01/11/kokoro-ga-sakebitagatterunda/
-Bakemono no Ko https://docs.google.com/spreadsheets/d/1Yp5kuGJyQIDLDiA8SnYu67lOls3mmCqdx0TuFVNBykQ/edit#gid=0 https://subscene.com/subtitles/the-boy-and-the-beast/arabic/1350445
+=Bakemono no Ko https://docs.google.com/spreadsheets/d/1Yp5kuGJyQIDLDiA8SnYu67lOls3mmCqdx0TuFVNBykQ/edit#gid=0 https://subscene.com/subtitles/the-boy-and-the-beast/arabic/1350445
 Hana to Alice: Satsujin Jiken https://slow.pics/c/o9scgcWd https://docs.google.com/spreadsheets/d/1Yp5kuGJyQIDLDiA8SnYu67lOls3mmCqdx0TuFVNBykQ/edit#gid=0 https://subscene.com/subtitles/hana-to-alice-satsujin-jiken/arabic/1194624
 Neko no Ongaeshi https://gracefulsubs.wordpress.com/2019/05/12/neko-no-ongaeshi/ https://subscene.com/subtitles/the-cat-returns-neko-no-ongaeshi/arabic/2274863 https://alkendy.net/archives/9451
 Suzumiya Haruhi no Shoushitsu https://subscene.com/subtitles/the-disappearance-of-haruhi-suzumiya-suzumiya-haruhi-no-shshitsu/arabic/1864562 https://subscene.com/subtitles/the-disappearance-of-haruhi-suzumiya-suzumiya-haruhi-no-shshitsu/arabic/1262165
