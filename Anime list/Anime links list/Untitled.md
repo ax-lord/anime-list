@@ -615,7 +615,7 @@
 		 - 
 
 ---
- -  [[
+ -  
 	 - raw:  
 		 - [[Pog42] KonoSuba Seasons 1-2 + OVAs + Movie(Kurenai Densetsu|Legend of Crimson) | Kono Subarashii Sekai ni Shukufuku wo! (BD 1080p HEVC x265 10-bit Opus) :: Nyaa](https://nyaa.si/view/1331497)
 	 - sub:
@@ -623,7 +623,7 @@
 	 - Comparisons:
 		 - [konosuba movie | Slowpoke Pics](https://slow.pics/c/9NujIPzB)
  ---
-  -  
+  -  [[Kud Wafter]]
 	 - raw:  
 		 - [[Ayashii] Kud Wafter [BD 1080p HEVC FLAC 5.1] (Multi-Subs) :: Nyaa](https://nyaa.si/view/1328604)
 		 - [[Kaleido-subs] Kud Wafter (BD 1080p) [9E56D178] :: Nyaa](https://nyaa.si/view/1326641)
@@ -632,28 +632,28 @@
 	 - Comparisons:
 		 - [kud | Slowpoke Pics](https://slow.pics/c/NeRN34IF)
  ---
-  -  
+  -  [[Toshokan Sensou - Kakumei no Tsubasa]]
 	 - raw:  
 		 - [[Drag] Toshokan Sensou꞉ Kakumei no Tsubasa (BD 1080p x264 10-bit FLAC) | Library War: The Wings of Revolution :: Nyaa](https://nyaa.si/view/1342753)
 	 - sub:
 		 - 
 
 ---
- -  
+ -  [[Choujin Locke]]
 	 - raw:  
 		 - [[Beatrice] Choujin Locke [BDRip 1920x1038 HEVC FLAC].mkv :: Nyaa](https://nyaa.si/view/1106963)
 	 - sub:
 		 - 
 
 ---
- -  
+ -  [[Omoi Omoware Furi Furare]]
 	 - raw:  
 		 - [[Beatrice-Raws] Omoi, Omoware, Furi, Furare [BDRip 1920x1080 HEVC DTSHD] :: Nyaa](https://nyaa.si/view/1382051)
 	 - sub:
 		 - 
 
 ---
- -  
+ -  [[Takanashi Rikka Kai - Chuunibyou demo Koi ga Shitai! Movie]]
 	 - raw:  
 		 - [[MK] Love, Chunibyo & Other Delusions! Rikka Version (Takanashi Rikka Kai: Gekijouban Chuunibyou demo Koi ga Shitai!) [BD 1080p][Hi10][Dual-Audio] :: Nyaa](https://nyaa.si/view/963576)
 	 - sub:
