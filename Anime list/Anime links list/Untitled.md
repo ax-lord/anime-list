@@ -413,21 +413,21 @@
 		 - 
 
 ---
- -  [[gir
+ -  [[Girls  Panzer Movie]]
 	 - raw:  
 		 - [Girls.und.Panzer.der.Film.S00E37.1080p-Hi10p.BluRay.FLAC5.1.x264-CTR.[4A03B7CB].mkv (English Dual Audio) :: Nyaa](https://nyaa.si/view/919675)
 	 - sub:
 		 - 
 
 ---
- -  
+ -  [[Goblin Slayer - Goblin's Crown]]
 	 - raw:  
 		 - [[Lulu] Goblin Slayer: Goblin's Crown [BD 1080p FLAC][Dual-Audio] :: Nyaa](https://nyaa.si/view/1397576)
 	 - sub:
 		 - 
 
 ---
- -  
+ -  [[Hotaru no Haka]]
 	 - raw:  
 		 - [[Kametsu] Grave of the Fireflies v2 [Blu-Ray][1080p][10bit][FLAC] :: Nyaa](https://nyaa.si/view/1154162)
 	 - sub:
