@@ -1043,7 +1043,7 @@
 		 - 
 
 ---
- -  
+ -  [[Saenai Heroine no Sodatekata Fine]]
 	 - raw:  
 		 - [[SCY-Circle] Saenai Heroine no Sodatekata Fine (BD 1080p Hi10 FLAC) :: Nyaa](https://nyaa.si/view/1362655)
 	 - sub:
@@ -1051,7 +1051,7 @@
 	 - Comparisons:
 		 - [Saenai Heroine no Sodatekata. Fine | Slowpoke Pics](https://slow.pics/c/KWquurr4)
  ---
-  -  
+  -  [[Youjo Senki Movie]]
 	 - raw:  
 		 - [[Vodes] Youjo Senki Movie [BD 1080p HEVC 10bit FLAC] [EngGerSub] | Saga of Tanya the Evil - the Movie - :: Nyaa](https://nyaa.si/view/1465140)
 	 - sub:
