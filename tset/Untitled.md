@@ -173,7 +173,7 @@ Violet Evergarden Gaiden: Eien to Jidou Shuki Ningyou https://athbul-khayal.net/
 =Tenki no Ko https://drive.google.com/file/d/1WcDVk36mzeragyweaUVWd55a6L7IpvBd/view  https://ddl.assassinssub.org/Movies/12%20Tenki%20No%20Ko/Subtitles%20&%20Fonts/ https://albara614.blogspot.com/2020/05/tenki-no-ko.html https://mugi-subs.blogspot.com/2020/05/tenki-no-ko-blu-ray.html
 Uchuu Show e Youkoso https://mega.nz/file/V44V0Y5J#lZds9rqBPh0RfqeBXCHguO-oj23wLp40UMAN_guN-3U
 Omoide no Marnie http://www.mediafire.com/file/3h2rk0ifhma1hut/%255BMSOMS-ANIME%255D_Omoide_no_Marnie_%255BMovie%255D%255BJP-AR%255D%255B1080p%255D%255BFF1FDC60%255D.mkv/file https://archive.org/details/OmarHidanWMWT2014BD1080pC66A3D21
-Mimi wo Sumaseba https://nyaa.iss.ink/view/861958 https://drive.google.com/drive/folders/1rE7Wk6eNxcqVSLfD-q5WgoQVgvxmts5M
+=Mimi wo Sumaseba https://nyaa.iss.ink/view/861958 https://drive.google.com/drive/folders/1rE7Wk6eNxcqVSLfD-q5WgoQVgvxmts5M
 Youjuu Toshi https://slow.pics/c/hjHkscl6 https://subscene.com/subtitles/wicked-city-yj-toshi/arabic/2258489
 Ookami Kodomo no Ame to Yuki https://slow.pics/c/6GSlGebw https://subscene.com/subtitles/the-wolf-children-ame-and-yuki-okami-kodomo-no-ame-to-yuki/arabic/2457565
 Kimi no Na wa. https://ddl.assassinssub.org/Movies/02%20Kimi%20No%20Na%20Wa/Subtitles%20&%20Fonts/  https://subscene.com/subtitles/kimi-no-na-wa-your-name/arabic/1659653 https://www.dropbox.com/s/wrfe4e8g3k0pbip/Kimi%20no%20Na%20wa.ass?dl=0 https://nyaa.iss.ink/view/975200
