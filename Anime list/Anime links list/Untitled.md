@@ -74,14 +74,14 @@
 		 - 
 
 ---
- -  
+ -  [[Bayonetta - Bloody Fat]]
 	 - raw:  
 		 - [[Drag] Bayonetta - Bloody Fate (BD 1080p x264 10-bit FLAC) [Dual Audio] :: Nyaa](https://nyaa.si/view/1328827)
 	 - sub:
 		 - 
 
 ---
- -  
+ -  [[Kyoukai no Kanata Movie 1 - I'll Be Here - Kako-hen]]
 	 - raw:  
 		 - [[Arid] Beyond the Boundary: I'll Be Here - Past [Dual-Audio][BDRip 1920x1080 Hi10 FLAC] | Kyoukai no Kanata - Kako-hen :: Nyaa](https://nyaa.si/view/1413069)
 	 - sub:
