@@ -149,8 +149,8 @@ Suzumiya Haruhi no Shoushitsu https://subscene.com/subtitles/the-disappearance-o
 Kara no Kyoukai " http://compare.bakashots.me/compare.php?setId=4733 https://slow.pics/c/mtlrVdye"
 Kotonoha no Niwa http://mohbaboo-subs.win/kotonoha-no-niwa_7/ kalaacom https://crowsub.blogspot.com/2016/09/the-garden-of-words.html?showComment=1472817189206#c2822133065728240878 https://subscene.com/subtitles/the-garden-of-words-koto-no-ha-no-niwa/arabic/754660 https://ddl.assassinssub.org/Movies/04%20Kotonoha%20No%20Niwa/Subtitles%20&%20Fonts/ https://subscene.com/subtitles/the-garden-of-words-koto-no-ha-no-niwa/arabic/1357986
 Toki wo Kakeru Shoujo http://mohbaboo-subs.win/toki-o-kakeru-shoujo_1/ https://subscene.com/subtitles/the-girl-who-leapt-through-time-toki-wo-kakeru-shjo/arabic/319748
-"Gekijouban Mahouka Koukou no Rettousei: Hoshi wo Yobu Shoujo" https://sadlover-sub.blogspot.com/2018/05/mahouka-koukou-no-rettousei-movie-hoshi.html
-"Suki ni Naru Sono Shunkan wo.: Kokuhaku Jikkou Iinkai" https://subscene.com/subtitles/suki-ni-naru-sono-shunkan-wo-kokuhaku-jikkou-iinkai/arabic/1697923 https://subscene.com/subtitles/suki-ni-naru-sono-shunkan-wo-kokuhaku-jikkou-iinkai/arabic/1574506
+="Gekijouban Mahouka Koukou no Rettousei: Hoshi wo Yobu Shoujo" https://sadlover-sub.blogspot.com/2018/05/mahouka-koukou-no-rettousei-movie-hoshi.html
+="Suki ni Naru Sono Shunkan wo.: Kokuhaku Jikkou Iinkai" https://subscene.com/subtitles/suki-ni-naru-sono-shunkan-wo-kokuhaku-jikkou-iinkai/arabic/1697923 https://subscene.com/subtitles/suki-ni-naru-sono-shunkan-wo-kokuhaku-jikkou-iinkai/arabic/1574506
 Yoru wa Mijikashi Arukeyo Otome https://mezzosubs.blogspot.com/2018/10/yoru-wa-mijikashi-arukeyo-otome.html
 Kumo no Mukou, Yakusoku no Basho https://ddl.assassinssub.org/Movies/15%20Kumo%20No%20Mukou,%20Yakusoku%20No%20Basho/Subtitles%20&%20Fonts/ https://www.startimes.com/f.aspx?t=27681477
 Toaru Hikuushi e no Tsuioku https://nyaa.iss.ink/view/324695 https://subscene.com/subtitles/the-princess-and-the-pilot-to-aru-hikoushi-e-no-tsuioku/arabic/1719280 https://wael-fansubs24.blogspot.com/2021/11/toaru-hikuushi-e-no-tsuioku-movie-bd.html
