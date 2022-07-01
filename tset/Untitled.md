@@ -159,7 +159,7 @@ The Sky Crawlers https://devil-fansubs.blogspot.com/2014/01/the-sky-crawlers.htm
 Kaze Tachinu  https://subscene.com/subtitles/the-wind-rises-kaze-tachinu/arabic/2326160 kalaacom  https://subscene.com/subtitles/the-wind-rises-kaze-tachinu/arabic/2639161 https://mega.nz/folder/vNdThJQL#94JQrgsOX5lEsWjayfekPg/folder/mcdlVDCb https://drive.google.com/file/d/0Bx3N7wmuE6SMdzQzVmRQbnh6SWM/view?resourcekey=0-KmFxrcfP3uT7oW7RGpWBVw
 Tiger & Bunny https://subscene.com/subtitles/gekij-ban-tiger-and-bunny-the-beginning/arabic/2737973 kalaacom https://subscene.com/subtitles/tiger-and-bunny-the-movie-the-rising/arabic/2737975
 Eve no Jikan https://slow.pics/c/WpmEKSMt
-Tobira wo Akete https://www.mediafire.com/file/llfuq9ui263y6g6/%255BAZ%255D_Tobira_wo_Akete.mkv/file
+=Tobira wo Akete https://www.mediafire.com/file/llfuq9ui263y6g6/%255BAZ%255D_Tobira_wo_Akete.mkv/file
 Tokyo Godfathers https://slow.pics/c/rO3DNz3a https://subscene.com/subtitles/tokyo-godfathers/arabic/2645191 https://crowsub.blogspot.com/2020/10/tokyo-godfathers-2003.html https://mega.nz/file/AQ8FwboC#EblDuzmDUwo5pVxwM72J2PhZp1Q_9umqcyC_Yxdjdqc
 Terra e... https://slow.pics/c/FMPTGJ0G https://masadorasub.wordpress.com/2021/07/29/%D9%81%D9%84%D9%85-%D9%86%D8%AD%D9%88-%D8%AA%D9%8A%D8%B1%D8%A7-toward-the-terra-%D9%85%D8%AA%D8%B1%D8%AC%D9%85/
 Trinity Seven: Eternity Library & Alchemic Girl https://subscene.com/subtitles/trinity-seven-movie-eternity-library-to-alchemic-girl/arabic/1721761
