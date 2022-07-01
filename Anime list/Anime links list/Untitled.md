@@ -1439,14 +1439,14 @@
 	 - Comparisons:
 		 - [Vampire Hunter D - Bloodlust | Slowpoke Pics](https://slow.pics/c/3Hg8J6Cg)
  ---
- -  
+ -  [[Venus Senki]]
 	 - raw:  
 		 - [Venus Wars - Venus Senki - ヴィナス戦記 v2 [BD.1080p] [Iznjie Biznjie] :: Nyaa](https://nyaa.si/view/1241291)
 	 - sub:
 		 - 
 
 ---
- -  
+ -  [[Violet Evergarden Movie]]
 	 - raw:  
 		 - [[Baws] Violet Evergarden: The Movie (BD 1080p HEVC TrueHD) (Dual-Audio) :: Nyaa](https://nyaa.si/view/1453594)
 		 - [[Baws] Violet Evergarden: The Movie (BD 4K HEVC TrueHD) (Dual-Audio) :: Nyaa](https://nyaa.si/view/1453593)
@@ -1454,7 +1454,7 @@
 		 - 
 
 ---
- -  
+ -  [[Violet Evergarden Gaiden - Eien to Jidou Shuki Ningyou]]
 	 - raw:  
 		 - [[Kulot] Violet Evergarden Gaiden Eien to Jidou Shuki Ningyou v3 [Dual-Audio][BDRip 1920x804 HEVC FLACx2] | Violet Evergarden I Eternity and the Auto Memory Doll :: Nyaa](https://nyaa.si/view/1400352)
 	 - sub:
@@ -1462,7 +1462,7 @@
 	 - Comparisons:
 		 - [Violet Evergarden: Eternity and the Auto Memories Doll - Beatrice-Raws vs PTer vs JPN BD vs USA BD | Slowpoke Pics](https://slow.pics/c/JyeOYg83)
  ---
-  -  
+  - 
 	 - raw:  
 		 - [Weathering with You 2019 ITA 1080p BluRay DDP 5.1 x264 D-Z0N3 :: Nyaa](https://nyaa.si/view/1537307)
 	 - sub:
@@ -1470,7 +1470,7 @@
 	 - Comparisons:
 		 - [Weathering with You - D-Z0N3 vs ITA D-Z0N3 vs Beatrice-Raws vs JPN BD vs Dynit ITA BD vs Shout Factory USA BD vs TWN BD | Slowpoke Pics](https://slow.pics/c/p6OaAyy7)
  ---
-  -  
+  -  [[Uchuu Show e Youkoso]]
 	 - raw:  
 		 - [[bxyh]_Welcome_to_the_Space_Show_[BD_1080p_AAC_Dual][A2F70EB9] :: Nyaa](https://nyaa.si/view/759562)
 	 - sub:
@@ -1478,7 +1478,7 @@
 	 - Comparisons:
 		 - [Welcome to the Space Show | Slowpoke Pics](https://slow.pics/c/XWxAGk82)
  ---
- -  
+ -  [[Omoide no Marnie]]
 	 - raw:  
 		 - [[REVO]When Marnie Was There[BD,1080p,AAC] [221CD027].mkv :: Nyaa](https://nyaa.si/view/794078)
 	 - sub:
@@ -1494,7 +1494,7 @@
 	 - Comparisons:
 		 - [Whisper of the Heart - THORA vs JPN BD | Slowpoke Pics](https://slow.pics/c/FEfHfpwO)
  ---
-  -  
+  -  [[Youjuu Toshi]]
 	 - raw:  
 		 - [[YURI] Wicked City (Youjuu Toshi) (Dual Audio)[BD 1440X1080 HEVC FLAC] :: Nyaa](https://nyaa.si/view/1390968)
 	 - sub:
@@ -1502,7 +1502,7 @@
 	 - Comparisons:
 		 - [wicked city | Slowpoke Pics](https://slow.pics/c/hjHkscl6)
  ---
-  -  
+  -  [[Ookami Kodomo no Ame to Yuki]]
 	 - raw:  
 		 - [Wolf.Children.1080p-Hi10p.BluRay.FLAC5.1.x264-CTR.[893DF64F].mkv (English Dubbed Dual Audio) (Ookami Kodomo no Ame to Yuki) :: Nyaa](https://nyaa.si/view/943460)
 	 - sub:
@@ -1510,7 +1510,7 @@
 	 - Comparisons:
 		 - [Wolf Children (Yousei vs REVO) | Slowpoke Pics](https://slow.pics/c/6GSlGebw)
  ---
-  -  
+  -  [[Kimi no Na wa]]
 	 - raw:  
 		 - [[YURI] Your Name (Kimi No Na Wa) [BD 1080p Flac][Dual Audio] :: Nyaa](https://nyaa.si/view/1329797)
 	 - sub:
