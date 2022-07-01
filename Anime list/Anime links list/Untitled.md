@@ -1139,7 +1139,7 @@
 	 - Comparisons:
 		 - [Summer Ghost | Slowpoke Pics](https://slow.pics/c/gbija2Ca)
  ---
-  -  [[sword 
+  -  [[Sword Art Online Movie - Ordinal Scale]]
 	 - raw:  
 		 - [[Arid] Sword Art Online - Ordinal Scale [Dual-Audio][BDRip 1080p x264 FLAC] :: Nyaa](https://nyaa.si/view/1394144)
 		 - [[RAI] Sword Art Online the Movie -Ordinal Scale- [Dual-Audio][BDRip 1920x1080 x264 FLAC] :: Nyaa](https://nyaa.si/view/1392999)
@@ -1148,7 +1148,7 @@
 	 - Comparisons:
 		 - [SAO -Ordinal Scale- | Slowpoke Pics](https://slow.pics/c/rq7KgrXH)
  ---
-  -  
+  -  [[Stranger - Mukou Hadan]]
 	 - raw:  
 		 - [[Vodes] Sword of the Stranger (Stranger: Mukoh Hadan) [BD 1080p HEVC 10bit] [Dual-Audio] :: Nyaa](https://nyaa.si/view/1437123)
 	 - sub:
@@ -1171,7 +1171,7 @@
 	 - Comparisons:
 		 - [Tales from Earthsea - THORA vs EbP vs Disney USA BD vs JPN BD | Slowpoke Pics](https://slow.pics/c/R64vn64t)
  ---
-  -  
+  -  [[Tamako Love Story]]
 	 - raw:  
 		 - [[Holomux] Tamako Love Story [BD 1080p x264 10bit FLAC 2.0 Dual] :: Nyaa](https://nyaa.si/view/1423312)
 	 - sub:
@@ -1179,14 +1179,14 @@
 	 - Comparisons:
 		 - [Tamako Love Story | Slowpoke Pics](https://slow.pics/c/Yx8XfkNC)
  ---
-  -  
+  -  [[Tekkon Kinkreet]]
 	 - raw:  
 		 - [Tekkon.Kinkreet.BD(1080p.FLAC)[Afro] (revised) :: Nyaa](https://nyaa.si/view/274547)
 	 - sub:
 		 - 
 
 ---
- -  
+ -  [[Kokoro ga Sakebitagatterunda]]
 	 - raw:  
 		 - [[YURI] The Anthem of the Heart (Kokoro ga Sakebitagatterunda) [BD 1080p FLAC] :: Nyaa](https://nyaa.si/view/1330327)
 	 - sub:
@@ -1200,7 +1200,7 @@
 		 - 
 
 ---
- -  
+ -  [[Hana to Alice - Satsujin Jiken]]
 	 - raw:  
 		 - [[Watashi]_The_Case_of_Hana_&_Alice_[BD_1080p][31076D88].mkv :: Nyaa](https://nyaa.si/view/733120)
 	 - sub:
@@ -1208,7 +1208,7 @@
 	 - Comparisons:
 		 - [The Case of Hana & Alice | Slowpoke Pics](https://slow.pics/c/o9scgcWd)
  ---
-  -  
+  -  [[Neko no Ongaeshi]]
 	 - raw:  
 		 - [[NEETgirl] Neko no Ongaeshi | The Cat Returns (2002) - Movie (BD 1080p x264 8-bit FLAC 5.1 Dual Audio) :: Nyaa](https://nyaa.si/view/1418077)
 	 - sub:
@@ -1223,7 +1223,7 @@
 		 - 
 
 ---
- -  
+ -  [[Kara no Kyoukai Movie 1 - Fukan Fuukei]]
 	 - raw:  
 		 - [[Reza] Kara no Kyoukai - Overlooking View [BDRip 1080p HEVC FLAC] (Garden Of Sinners) :: Nyaa](https://nyaa.si/view/1467853)
 	 - sub:
@@ -1231,7 +1231,7 @@
 	 - Comparisons:
 		 - [Boundary Of Emptiness: The Garden Of Sinners | Slowpoke Pics](https://slow.pics/c/mtlrVdye)
  ---
-  -  
+  -  [[kara
 	 - raw:  
 		 - [[ANE] Kara no Kyoukai [BDRip 1080p x264 FLAC] :: Nyaa](https://nyaa.si/view/264295)
 	 - sub:
