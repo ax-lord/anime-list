@@ -847,7 +847,7 @@
 		 - 
 
 ---
- -  [[pate
+ -  [[Sakasama no Patema]]
 	 - raw:  
 		 - [[deanzel] Patema Inverted [BD 1080p Hi10p Dual Audio FLAC][afa8a83e] :: Nyaa](https://nyaa.si/view/713419)
 		 - [[Arid] Patema Inverted [Dual-Audio][BDRip 1920x1080 Hi10 FLAC] :: Nyaa](https://nyaa.si/view/1540690)
@@ -856,7 +856,7 @@
 	 - Comparisons:
 		 - [Patema Inverted | Slowpoke Pics](https://slow.pics/c/sbOxlvrv)
  ---
-  -  
+  -  [[Kidou Keisatsu Patlabor the Movie]]
 	 - raw:  
 		 - [[hydes] Patlabor: The Movie [JPBD Remux][Dual-Audio] + Extras :: Nyaa](https://nyaa.si/view/1396430)
 	 - sub:
@@ -864,7 +864,7 @@
 	 - Comparisons:
 		 - [Patlabor: The Movie - JPBD vs niizk vs sxales | Slowpoke Pics](https://slow.pics/c/ogBgJxeQ)
  ---
-  -  
+  -  [[Kidou Keisatsu Patlabor 2 the Movie]]
 	 - raw:  
 		 - [[hydes] Patlabor 2: The Movie [JPBD Remux][Dual-Audio] + Extras :: Nyaa](https://nyaa.si/view/1385665)
 	 - sub:
@@ -872,14 +872,14 @@
 	 - Comparisons:
 		 - [Patlabor 2: The Movie | Slowpoke Pics](https://slow.pics/c/K12gStdE)
  ---
-  -  
+  -  [[Penguin Highway]]
 	 - raw:  
 		 - [[YURI] Penguin Highway[BD 1080p FLAC][Dual Audio] :: Nyaa](https://nyaa.si/view/1331946)
 	 - sub:
 		 - 
 
 ---
- -  
+ -  [[Perfect Blue]]
 	 - raw:  
 		 - [[Arid] Perfect Blue [Dual-Audio][BD 1920x1036 x264 FLAC AC-3] :: Nyaa](https://nyaa.si/view/1372227)
 	 - sub:
@@ -887,49 +887,49 @@
 	 - Comparisons:
 		 - [Perfect Blue - Dogway vs HiFi | Slowpoke Pics](https://slow.pics/c/pIQMJPm6)
  ---
-  -  
+  -  [[Persona 3 the Movie 1 - Spring of Birth]]
 	 - raw:  
 		 - [[Drag] Persona 3 The Movie 1 - Spring of Birth (BD 1080p x264 10-bit FLAC) :: Nyaa](https://nyaa.si/view/1365016)
 	 - sub:
 		 - 
 
 ---
- -  
+ -  [[Persona 3 the Movie 2 - Midsummer Knight's Dream]]
 	 - raw:  
 		 - [[Drag] Persona 3 The Movie 2 - Midsummer Knight's Dream (BD 1080p x264 10-bit FLAC) :: Nyaa](https://nyaa.si/view/1365017)
 	 - sub:
 		 - 
 
 ---
- -  
+ -  [[Persona 3 the Movie 3 - Falling Down]]
 	 - raw:  
 		 - [[Drag] Persona 3 The Movie 3 - Falling Down (BD 1080p x264 10-bit FLAC) :: Nyaa](https://nyaa.si/view/1365018)
 	 - sub:
 		 - 
 
 ---
- -  
+ -  [[Persona 3 the Movie 4 - Winter of Rebirth]]
 	 - raw:  
 		 - [[Drag] Persona 3 The Movie 4 - Winter of Rebirth (BD 1080p x264 10-bit FLAC) :: Nyaa](https://nyaa.si/view/1365019)
 	 - sub:
 		 - 
 
 ---
- -  
+ -  [[Piano no Mori]]
 	 - raw:  
 		 - [[Drag] Piano no Mori (2007) (BD 1080p x264 10-bit FLAC) | The Piano Forest :: Nyaa](https://nyaa.si/view/1373745)
 	 - sub:
 		 - 
 
 ---
- -  
+ -  [[Planetarian - Hoshi no Hito]]
 	 - raw:  
 		 - [[Kametsu] Planetarian - Man of the Stars (BD 1080p Hi10 FLAC) [Dual-Audio] :: Nyaa](https://nyaa.si/view/1076267)
 	 - sub:
 		 - 
 
 ---
- -  
+ -  [[Gake no Ue no Ponyo]]
 	 - raw:  
 		 - [[REVO]Ponyo on the Cliff by the Sea[BD,1080p,FLAC] [EB6664E8].mkv :: Nyaa](https://nyaa.si/view/594123)
 	 - sub:
@@ -945,7 +945,7 @@
 	 - Comparisons:
 		 - [Porco Rosso 2: Electric Boogaloo - REVO vs JPN BD vs JPN MGVC BD vs USA Disney BD | Slowpoke Pics](https://slow.pics/c/E8AuRknc)
  ---
-  -  
+  -  [[Mononoke Hime]]
 	 - raw:  
 		 - [[Arid] Princess Mononoke [Dual-Audio][BD 1920x1036 x264 FLAC] :: Nyaa](https://nyaa.si/view/1373627)
 	 - sub:
@@ -953,7 +953,7 @@
 	 - Comparisons:
 		 - [Princess Mononoke - THORA vs REVO vs SbR vs JPN BD vs MGVC JPN BD vs Disney USA BD | Slowpoke Pics](https://slow.pics/c/EZeCj7wp)
  ---
-  -  
+  -  [[Promare]]
 	 - raw:  
 		 - [[Arid] Promare [ITBD Remux][Dual-Audio] :: Nyaa](https://nyaa.si/view/1366053)
 	 - sub:
@@ -961,7 +961,7 @@
 	 - Comparisons:
 		 - [Promare Beatrice VS ITA BD | Slowpoke Pics](https://slow.pics/c/7eVdQUyf)
  ---
-  -  
+  -  [[
 	 - raw:  
 		 - [[YURI] Psychic School Wars (Nerawareta Gakuen) (Dual Audio)[BD 1080p HEVC FLAC] :: Nyaa](https://nyaa.si/view/1384121)
 	 - sub:
