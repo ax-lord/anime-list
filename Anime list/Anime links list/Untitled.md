@@ -130,28 +130,28 @@
 		 - 
 
 ---
- -  [[bongu
+ -  
 	 - raw:  
 		 - [[VCB-Studio] Bungou Stray Dogs Dead Apple / 文豪ストレイドッグス DEAD APPLE 10-bit 1080p HEVC BDRip [Movie Fin] :: Nyaa](https://nyaa.si/view/1117391)
 	 - sub:
 		 - 
 
 ---
- -  
+ -  [[Cardcaptor Sakura Movie ]]
 	 - raw:  
 		 - [[Beatrice-Raws] Gekijouban Cardcaptor Sakura [BDRip 1920x1080 HEVC FLAC] :: Nyaa](https://nyaa.si/view/1106786)
 	 - sub:
 		 - 
 
 ---
- -  
+ -  [[Cardcaptor Sakura Movie 2 - Fuuin Sareta Card]]
 	 - raw:  
 		 - [[Beatrice-Raws] Gekijouban Cardcaptor Sakura - Fuuin Sareta Card [BDRip 1920x1080 HEVC FLAC] :: Nyaa](https://nyaa.si/view/1106831)
 	 - sub:
 		 - 
 
 ---
- -  
+ -  [[lapu
 	 - raw:  
 		 - [[hydes] Laputa: Castle in the Sky v2 [JPBD Remux][Dual-Audio]『Ghibli Project』 :: Nyaa](https://nyaa.si/view/1502230)
 	 - sub:
