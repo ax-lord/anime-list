@@ -34,7 +34,7 @@ Date A Live Movie: Mayuri Judgment https://subscene.com/subtitles/date-a-live-mo
 Death Billiards https://mega.nz/file/zRUFFBTZ#RKr7qMyEvdeNrR7Psg9jY4vFRP_0hTBqC0tWom8GUa8 https://subscene.com/subtitles/death-billards/arabic/2260134
 Gekijouban Kimetsu no Yaiba: Mugen Ressha Hen https://slow.pics/c/bB6uxggs https://mugi-subs.blogspot.com/2021/06/kimetsu-no-yaiba-movie-mugen-ressha-hen.html
 Evangelion Rebuild https://nyaa.iss.ink/view/1254315 
-Rakuen Tsuihou https://slow.pics/c/Y4c2TDIY https://subscene.com/subtitles/contact-the-filmmakers-on-imdbpro-see-rank-rakuen-tsuiho-expelled-from-paradise
+=Rakuen Tsuihou https://slow.pics/c/Y4c2TDIY https://subscene.com/subtitles/contact-the-filmmakers-on-imdbpro-see-rank-rakuen-tsuiho-expelled-from-paradise
 Fate/kaleid liner Prisma☆Illya: Phantasm https://rhythm-sub.com/2020/01/01/fate-kaleid-liner-prisma%E2%98%86illya-movie-sekka-no-chikai-kuro-sakura-no-heya
 Fate/stay night: Heaven's Feel "https://slow.pics/c/oXLNCM6S https://slow.pics/c/UYaijbfV https://slow.pics/c/GzejDyUq https://slow.pics/c/vXFOcJoQ https://slow.pics/c/OJWmGI5P"
 https://cdn.discordapp.com/attachments/436883123322617866/713341406042783824/Feitan_fate_stay_night_heavens_feel_presage_flower_.ass https://cdn.discordapp.com/attachments/436883123322617866/713377434371752047/Feitan_Fate_stay_night_Heavens_Feel_II_-_Lost_Butterfly.ass https://cdn.discordapp.com/attachments/436883123322617866/826861634924052580/Feitan_Fate_stay_night_Heavens_Feel_III_-_Spring_Song.ass
