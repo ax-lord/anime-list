@@ -67,7 +67,7 @@ Hotarubi no Mori e https://slow.pics/c/2diFUQ0p https://animesan-subs.blogspot.c
 Howl no Ugoku Shiro https://slow.pics/c/bLUBvgWk 
 =Kimi no Suizou wo Tabetai https://drive.google.com/drive/folders/1Q5M03OLudct1OGm-Tw7EADd_l29swFhi https://subscene.com/subtitles/kimi-no-suizou-wo-tabetai-i-want-to-eat-your-pancreas/arabic/2770723 https://athbul-khayal.net/kimi-no-suizou-wo-tabetai-blu-ray/
 Zutto Mae Kara Suki Deshita.: Kokuhaku Jikkou Iinkai https://slow.pics/c/aXnI362s https://fattati.com/2016/10/13/zutto-mae-kara-suki-deshita-kokuhaku-jikkou-iinkai-movie/
-Kono Sekai no Katasumi ni https://ddl.assassinssub.org/Movies/03%20Kono%20Sekai%20No%20Katasumi%20Ni/ https://subscene.com/subtitles/in-this-corner-of-the-world/arabic/2498730
+=Kono Sekai no Katasumi ni https://ddl.assassinssub.org/Movies/03%20Kono%20Sekai%20No%20Katasumi%20Ni/ https://subscene.com/subtitles/in-this-corner-of-the-world/arabic/2498730
 "Gekijouban Dungeon ni Deai o Motomeru no wa Machigatte Iru Darouka: Orion no Ya" https://subscene.com/subtitles/dungeon-ni-deai-wo-motomeru-no-wa-machigatteiru-darou-ka-movie-orion-no-ya/arabic/2014557 https://subscene.com/subtitles/dungeon-ni-deai-wo-motomeru-no-wa-machigatteiru-darou-ka-movie-orion-no-ya/arabic/2012698 https://subscene.com/subtitles/dungeon-ni-deai-wo-motomeru-no-wa-machigatteiru-darou-ka-movie-orion-no-ya/arabic/2014593 https://hikki-sub.blogspot.com/2019/08/danmachi-movie-arrow-of-orion-bdrip.html
 K-ON! The Movie https://subscene.com/subtitles/k-on-movie/arabic/2056296  https://subscene.com/subtitles/k-on-movie/arabic/2384782
 Koutetsujou no Kabaneri: Unato Kessen https://mugi-subs.blogspot.com/2019/08/koutetsujou-no-kabaneri-movie-unato.html https://caffeine-world.info/movies/koutetsujou-no-kabaneri-unato-kessen/ 
