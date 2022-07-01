@@ -31,7 +31,7 @@
 		 - [A Silent Voice | Slowpoke Pics](https://slow.pics/c/q7erUl0S)
 		 - [unknown | Slowpoke Pics](https://slow.pics/c/DIbTimRA)
  ---
-  -  [[Accel World - Infinite∞Burst ]]
+  -  [[Accel World - Infinite∞Burst]]
 	 - raw:  
 		 - [[SOLA] Accel World: Infinite Burst (2016) - Movie (BD 1080p x264 Hi10P FLAC 5.1 Dual Audio) :: Nyaa](https://nyaa.si/view/1418121)
 	 - sub:
