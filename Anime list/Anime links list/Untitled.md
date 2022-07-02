@@ -435,7 +435,7 @@
 	 - Comparisons:
 		 - [Grave of the Fireflies - Kametsu v2 vs REVO (no b frames) vs D-Z0N3 vs CtrlHD vs JPN BD/MGVC JPN BD | Slowpoke Pics](https://slow.pics/c/8F7UQ9nn)
  ---
-  -  
+  -  [[Onna Senshi Efe  Jira - Gude no Monshou]]
 	 - raw:  
 		 - [[Orphan] Gude Crest (LD) :: Nyaa](https://nyaa.si/view/1369668)
 	 - sub:
@@ -449,7 +449,7 @@
 		 - 
 
 ---
- -  
+ -  [[Dounika Naru Hibi]]
 	 - raw:  
 		 - [[Commie] Happy-Go-Lucky Days [BD 1080p AAC] [E0AA62AA].mkv :: Nyaa](https://nyaa.si/view/1379377)
 	 - sub:
@@ -470,7 +470,7 @@
 		 - 
 
 ---
- -  
+ -  [[Hashire! Shiroi Ookami]]
 	 - raw:  
 		 - [[Orphan] Hashire! Shiroi Ookami (VHS) :: Nyaa](https://nyaa.si/view/1381930)
 	 - sub:
