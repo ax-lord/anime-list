@@ -124,7 +124,7 @@
 		 - 
 
 ---
- -  
+ -  [[Break Blade Movie 1 - Kakusei no Toki]]
 	 - raw:  
 		 - [[Lulu] Break Blade (Broken Blade) Movies [BD 1080p Hi10 FLAC][Dual-Audio] :: Nyaa](https://nyaa.si/view/1498421)
 	 - sub:
