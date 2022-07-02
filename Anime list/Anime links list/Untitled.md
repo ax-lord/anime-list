@@ -1326,7 +1326,7 @@
 		 - 
 
 ---
- -  
+ -  [[Kumo no Mukou Yakusoku no Basho]]
 	 - raw:  
 		 - [[Arid] The Place Promised in Our Early Days [Dual-Audio][BDRip 1920x1080 HEVC FLAC] :: Nyaa](https://nyaa.si/view/1372191)
 	 - sub:
@@ -1340,7 +1340,7 @@
 		 - 
 
 ---
- -  
+ -  [[Karigurashi no Arrietty]]
 	 - raw:  
 		 - [[REVO] The Borrower Arrietty [BD,1080p,FLAC-Dual][10bit] [33032026].mkv | Anime Tosho](https://animetosho.org/view/revo-borrower-arrietty-bd-1080p-flac-dual-10bit-33032026-mkv.497204)
 	 - sub:
@@ -1367,7 +1367,14 @@
  ---
   -  [[Tiger  Bunny Movie 1 - The Beginning]]
 	 - raw:  
-		 - [[sam] Tiger & Bunny (BD 1080p x264 Hi10P FLAC) :: Nyaa](https://nyaa.si/view/1416054)
+		 - [[Drag] Gekijouban Tiger & Bunny (BD 1080p x264 10-bit FLAC) [Dual Audio] :: Nyaa ISS](https://nyaa.iss.ink/view/1381049)
+	 - sub:
+		 - 
+
+---
+ -  [[Tiger  Bunny Movie 2 - The Rising]]
+	 - raw:  
+		 - [[Drag] Gekijouban Tiger & Bunny (BD 1080p x264 10-bit FLAC) [Dual Audio] :: Nyaa ISS](https://nyaa.iss.ink/view/1381049)
 	 - sub:
 		 - 
 
