@@ -1216,7 +1216,7 @@
 	 - Comparisons:
 		 - [The Cat Returns - CHD vs DON vs MGVC JPN BD vs Disney USA BD | Slowpoke Pics](https://slow.pics/c/4urqQt0l)
  ---
-  -  
+  -  [[Suzumiya Haruhi no Shoushitsu]]
 	 - raw:  
 		 - [[hchcsen] The Disappearance of Haruhi Suzumiya (Suzumiya Haruhi no Shoushitsu) (1080p) (BDRip) (Dual Audio) :: Nyaa](https://nyaa.si/view/1501463)
 	 - sub:
