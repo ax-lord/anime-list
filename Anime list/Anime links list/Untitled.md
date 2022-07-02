@@ -1486,7 +1486,7 @@
 	 - Comparisons:
 		 - [When Marnie Was There - REVO vs neko-raws vs EbP vs MGVC JPN BD vs Universal USA BD | Slowpoke Pics](https://slow.pics/c/TiU7AYcM)
  ---
-  -  
+  -  [[Mimi wo Sumaseba]]
 	 - raw:  
 		 - [Whisper_of_the_Heart_(1995)_[1080p,BluRay,flac,dts,x264]_-_THORA :: Nyaa](https://nyaa.si/view/929675)
 	 - sub:
