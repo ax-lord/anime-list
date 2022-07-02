@@ -124,7 +124,7 @@
 		 - 
 
 ---
- -  
+ -  [[Break Blade Movie 1 - Kakusei no Toki]]
 	 - raw:  
 		 - [[Lulu] Break Blade (Broken Blade) Movies [BD 1080p Hi10 FLAC][Dual-Audio] :: Nyaa](https://nyaa.si/view/1498421)
 	 - sub:
@@ -233,7 +233,7 @@
 		 - 
 
 ---
- -  
+ -  [[Dead Leaves]]
 	 - raw:  
 		 - [[Kulot] Dead Leaves [Dual-Audio][WEB-DL 1920x1080p x264 AAC AC3] :: Nyaa](https://nyaa.si/view/1402290)
 	 - sub:
@@ -285,7 +285,7 @@
 		 - 
 
 ---
- -  
+ -  [[Rakuen Tsuihou]]
 	 - raw:  
 		 - [[Lulu] Rakuen Tsuihou - Expelled from Paradise [BD 1080p Hi10 FLAC][Dual-Audio] :: Nyaa](https://nyaa.si/view/1434528)
 	 - sub:
@@ -293,7 +293,7 @@
 	 - Comparisons:
 		 - [Expelled from Paradise | Slowpoke Pics](https://slow.pics/c/Y4c2TDIY)
  ---
-  -  
+  -  [[Fatekaleid liner Prisma☆Illya - Prisma☆Phantasm]]
 	 - raw:  
 		 - [[Arid] Fate kaleid liner Prisma☆Illya Prisma☆Phantasm [BD 1080p x264 FLAC] :: Nyaa](https://nyaa.si/view/1382548)
 		 - [[SNSbu] Fate kaleid liner Prisma☆Illya Prisma☆Phantasm (BD 1920x1080 AVC FLAC) :: Nyaa](https://nyaa.si/view/1222743)
@@ -526,7 +526,7 @@
 		 - [Howl's Moving Castle REVO vs EbP vs HiFi | Slowpoke Pics](https://slow.pics/c/bLUBvgWk)
 		 - [Howl's Moving Castle II: Attack of the Clones - REVO vs THORA v2 vs EbP vs JPN BD vs Shout Factory USA BD vs Disney USA BD (no b frames) | Slowpoke Pics](https://slow.pics/c/H1PnYptd)
  ---
-  -  
+  -  [[Kimi no Suizou wo Tabetai]]
 	 - raw:  
 		 - [[Arid] I Want to Eat Your Pancreas [Dual-Audio][BDRip 1080p HEVC OPUS] :: Nyaa](https://nyaa.si/view/1546186)
 	 - sub:
@@ -541,7 +541,7 @@
 	 - Comparisons:
 		 - [Zutto Mae kara Suki Deshita. Kokuhaku Jikkou Iinkai | Slowpoke Pics](https://slow.pics/c/aXnI362s)
  ---
-  -  
+  -  [[Kono Sekai no Katasumi ni]]
 	 - raw:  
 		 - [[SCY] In This Corner of the World (BD 1080p Hi10 FLAC) [Dual-Audio] :: Nyaa](https://nyaa.si/view/984322)
 	 - sub:
@@ -615,7 +615,7 @@
 		 - 
 
 ---
- -  
+ -  [[Kono Subarashii Sekai ni Shukufuku wo! Spin-off - Kono Subarashii Sekai ni Bakuen wo!]]
 	 - raw:  
 		 - [[Pog42] KonoSuba Seasons 1-2 + OVAs + Movie(Kurenai Densetsu|Legend of Crimson) | Kono Subarashii Sekai ni Shukufuku wo! (BD 1080p HEVC x265 10-bit Opus) :: Nyaa](https://nyaa.si/view/1331497)
 	 - sub:
