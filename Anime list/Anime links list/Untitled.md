@@ -1036,7 +1036,7 @@
 	 - Comparisons:
 		 - [Riding Bean | Slowpoke Pics](https://slow.pics/c/B4UPRQvx)
  ---
-  -  
+  -  [[Ryo]]
 	 - raw:  
 		 - [[gg]_Anime_Mirai_2013_-_Ryo_[BD_1080p]_[0BF97B3D].mkv :: Nyaa](https://nyaa.si/view/453715)
 	 - sub:
@@ -1100,7 +1100,7 @@
 		 - 
 
 ---
- -  
+ -  [[Hibike! Euphonium Movie 2 - Todoketai Melody]]
 	 - raw:  
 		 - 
 	 - sub:
@@ -1156,14 +1156,14 @@
 	 - Comparisons:
 		 - [Sword of the Stranger (Revo vs Afro vs D-Zone vs Thora) | Slowpoke Pics](https://slow.pics/c/AVzqO0NK)
  ---
-  -  
+  -  [[Tailenders]]
 	 - raw:  
 		 - [Tailenders.BD(1080p.FLAC)[Afro] :: Nyaa](https://nyaa.si/view/274938)
 	 - sub:
 		 - 
 
 ---
- -  
+ -  [[Ged Senki]]
 	 - raw:  
 		 - [Tales_from_Earthsea_(2006)_[1080p,BluRay,flac,dts,x264]_-_THORA :: Nyaa](https://nyaa.si/view/262306)
 	 - sub:
