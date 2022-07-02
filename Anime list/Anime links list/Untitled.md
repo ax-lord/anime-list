@@ -39,7 +39,7 @@
 		 - 
 
 ---
- -  
+ -  [[Akira]]
 	 - raw:  
 		 - [[Lulu] Akira [BD 1920x1032 x264 FLAC][Dual-Audio] :: Nyaa](https://nyaa.si/view/1463127)
 	 - sub:
