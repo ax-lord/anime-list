@@ -383,7 +383,7 @@
 		 - [Judgment - Comparison Index - Koukaku Kidoutai 2 - Innocence - 1080p-1](http://comp.judging.it/index.php?seriesid=Koukaku%20Kidoutai%202%20-%20Innocence&comparisonid=1080p-1)
 		 - [GITS Innocence | Slowpoke Pics](https://slow.pics/c/7p4G0TWA)
  ---
-  -  
+  -  [[Koukaku Kidoutai 20]]
 	 - raw:  
 		 - [[Beatrice-Raws] Ghost in the Shell 2.0 [BDRip 1920x1080 x264 FLAC]rev :: Nyaa](https://nyaa.si/view/899112)
 	 - sub:
