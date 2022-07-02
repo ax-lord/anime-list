@@ -1380,7 +1380,7 @@
 	 - Comparisons:
 		 - [time of eve | Slowpoke Pics](https://slow.pics/c/WpmEKSMt)
  ---
-  -  
+  -  [[Taifuu no Noruda]]
 	 - raw:  
 		 - [[Orphan] Tobira o Akete (DVD) :: Nyaa](https://nyaa.si/view/1438126)
 	 - sub:
