@@ -493,7 +493,7 @@
 		 - 
 
 ---
- -  
+ -  [[Sora no Aosa wo Shiru Hito yo]]
 	 - raw:  
 		 - [[Arid] Her Blue Sky [BDRip 1080p x264 FLAC] :: Nyaa](https://nyaa.si/view/1388521)
 		 - [[Kaizoku] Her Blue Sky (BD 1080p AAC) [D2289DFA] (Sora no Aosa wo Shiru Hito yo) :: Nyaa](https://nyaa.si/view/1255450)
@@ -576,7 +576,7 @@
 		 - 
 
 ---
- -  
+ -  [[Majo no Takkyuubin]]
 	 - raw:  
 		 - [[REVO]Kiki's Delivery Service[1080p,FLAC] [5A329906].mkv :: Nyaa](https://nyaa.si/view/588431)
 	 - sub:
