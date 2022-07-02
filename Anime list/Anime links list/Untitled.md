@@ -96,7 +96,7 @@
 		 - 
 
 ---
- -  
+ -  [[Da Yu Hai Tang (Movie)]]
 	 - raw:  
 		 - [[Beatrice-Raws] Big Fish & Begonia (2016) [BDRip 1920x804 HEVC DTS-HDMA] :: Nyaa](https://nyaa.si/view/1105820)
 	 - sub:
@@ -110,7 +110,7 @@
 		 - 
 
 ---
- -  
+ -  [[# Bokura no Nanokakan Sensou]]
 	 - raw:  
 		 - [[Beatrice-Raws] Bokura no Nanokakan Sensou (Seven Days War) [BDRip 1920x1080 HEVC FLAC] :: Nyaa](https://nyaa.si/view/1255094)
 	 - sub:
