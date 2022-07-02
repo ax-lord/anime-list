@@ -683,7 +683,7 @@
 	 - Comparisons:
 		 - [Made in Abyss - Beatrice-Raws vs HyD vs JPN BD vs ITA BD | Slowpoke Pics](https://slow.pics/c/OcAC4Vsg)
  ---
-  -  
+  -  [[Mai Mai Shinko to Sennen no Mahou]]
 	 - raw:  
 		 - [[Hark0n] Mai Mai Shinko to Sennen no Mahou | Mai-Mai Miracle (2009) - Movie (BD 1080p x264 Hi10P FLAC Dual Audio) :: Nyaa](https://nyaa.si/view/1417705)
 	 - sub:
@@ -705,6 +705,13 @@
 	 - Comparisons:
 		 - 
  ---
+  -  [[Memories]]
+	 - raw:  
+		 - [Site Unreachable](https://nyaa.si/view/1416480)
+	 - sub:
+		 - 
+
+---
   -  [[Metropolis]]
 	 - raw:  
 		 - [Metropolis (BD 720p) [Afro] (revised) :: Nyaa](https://nyaa.si/view/468531)
@@ -712,7 +719,7 @@
 		 - 
 
 ---
- -  
+ -  [[Sennen Joyuu]]
 	 - raw:  
 		 - [[Arid] Millennium Actress [Dual-Audio][BDRip 1920x1036 x264 Hi10P FLAC] :: Nyaa](https://nyaa.si/view/1381676)
 	 - sub:
@@ -728,7 +735,7 @@
 	 - Comparisons:
 		 - [unknown | Slowpoke Pics](https://slow.pics/c/a0uzEcHt)
  ---
- -  
+ -  [[Mirai no Mirai]]
 	 - raw:  
 		 - [[Arid] Mirai [Dual-Audio][BDRip 1920x1038 HEVC FLAC] :: Nyaa](https://nyaa.si/view/1386296)
 	 - sub:
@@ -749,7 +756,7 @@
 		 - 
 
 ---
- -  
+ -  [[Mushishi Zoku Shou - Suzu no Shizuku]]
 	 - raw:  
 		 - [[ARC] Mushishi Zoku Shou + Specials (2014) [BD 1080p FLAC] :: Nyaa](https://nyaa.si/view/1364997)
 	 - sub:
@@ -765,7 +772,7 @@
 	 - Comparisons:
 		 - [My Hero Academia Two Heroes (movie 1) | Slowpoke Pics](https://slow.pics/c/28QXWtTn)
  ---
-  -  
+  -  [[Tonari no Totoro]]
 	 - raw:  
 		 - [[UDF] My Neighbor Totoro (Streamline & Disney) (BDRip 1080p x264) [dual-audio] [32AD9BE6] :: Nyaa](https://nyaa.si/view/1354334)
 	 - sub:
@@ -789,7 +796,7 @@
 	 - Comparisons:
 		 - [Nausicaä of the Valley of the Wind - REVO (Old) vs REVO (New) vs THORA vs JPN BD vs MGVC JPN BD VS Optimum/Studio Canal GBR BD vs Shout Factory USA BD vs Disney USA BD | Slowpoke Pics](https://slow.pics/c/jJ5uYNPo)
  ---
-  -  
+  -  [[Juubee Ninpuuchou]]
 	 - raw:  
 		 - [[Omotenashi] Ninja Scroll [1460x1080 HEVC FLAC].mkv :: Nyaa](https://nyaa.si/view/1264091)
 	 - sub:
