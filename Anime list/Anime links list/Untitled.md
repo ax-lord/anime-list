@@ -110,21 +110,21 @@
 		 - 
 
 ---
- -  [[# Bokura no Nanokakan Sensou]]
+ -  [[Bokura no Nanokakan Sensou]]
 	 - raw:  
 		 - [[Beatrice-Raws] Bokura no Nanokakan Sensou (Seven Days War) [BDRip 1920x1080 HEVC FLAC] :: Nyaa](https://nyaa.si/view/1255094)
 	 - sub:
 		 - 
 
 ---
- -  [[Boruto - Naruto the Movi]]
+ -  [[Boruto - Naruto the Movie]]
 	 - raw:  
 		 - [[Lulu] Boruto - Naruto the Movie [BDRip 1912x1036 x264 FLAC][Dual-Audio] :: Nyaa](https://nyaa.si/view/1457838)
 	 - sub:
 		 - 
 
 ---
- -  
+ -  [[Broken Blade]]
 	 - raw:  
 		 - [[Lulu] Break Blade (Broken Blade) Movies [BD 1080p Hi10 FLAC][Dual-Audio] :: Nyaa](https://nyaa.si/view/1498421)
 	 - sub:
