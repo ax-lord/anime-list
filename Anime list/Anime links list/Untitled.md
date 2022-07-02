@@ -824,7 +824,7 @@
 		 - 
 
 ---
- -  
+ -  [[Omoide Poroporo]]
 	 - raw:  
 		 - [[Kametsu] Only Yesterday (1991) (BD 1080p Hi10 FLACx2) [Dual-Audio] :: Nyaa](https://nyaa.si/view/838731)
 	 - sub:
@@ -944,7 +944,7 @@
 	 - Comparisons:
 		 - [Ponyo on the Cliff by the Sea - REVO vs THORA vs Yousei-Raws vs JPN BD vs MGVC JPN BD vs Disney USA BD | Slowpoke Pics](https://slow.pics/c/cDpy2A7z)
  ---
- -  
+ -  [[Kurenai no Buta]]
 	 - raw:  
 		 - [[REVO]Porco Rosso[1080p,FLAC] [8CF9BCDE].mkv :: Nyaa](https://nyaa.si/view/480439)
 	 - sub:
