@@ -541,7 +541,7 @@
 	 - Comparisons:
 		 - [Zutto Mae kara Suki Deshita. Kokuhaku Jikkou Iinkai | Slowpoke Pics](https://slow.pics/c/aXnI362s)
  ---
-  -  
+  -  [[Kono Sekai no Katasumi ni]]
 	 - raw:  
 		 - [[SCY] In This Corner of the World (BD 1080p Hi10 FLAC) [Dual-Audio] :: Nyaa](https://nyaa.si/view/984322)
 	 - sub:
@@ -615,7 +615,7 @@
 		 - 
 
 ---
- -  
+ -  [[Kono Subarashii Sekai ni Shukufuku wo! Spin-off - Kono Subarashii Sekai ni Bakuen wo!]]
 	 - raw:  
 		 - [[Pog42] KonoSuba Seasons 1-2 + OVAs + Movie(Kurenai Densetsu|Legend of Crimson) | Kono Subarashii Sekai ni Shukufuku wo! (BD 1080p HEVC x265 10-bit Opus) :: Nyaa](https://nyaa.si/view/1331497)
 	 - sub:

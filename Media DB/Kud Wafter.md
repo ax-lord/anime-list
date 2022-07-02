@@ -1,5 +1,5 @@
 ---
-type: "series"
+subType: "ova"
 title: "Kud Wafter"
 englishTitle: "Kud Wafter"
 year: 2020
@@ -19,6 +19,7 @@ released: true
 airedFrom: "11/28/2020"
 airedTo: "1/1/1970"
 airing: false
+type: "series"
 watched: false
 lastWatched: ""
 personalRating: 0
