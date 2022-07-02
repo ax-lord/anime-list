@@ -124,14 +124,14 @@
 		 - 
 
 ---
- -  [[Broken Blade]]
+ -  
 	 - raw:  
 		 - [[Lulu] Break Blade (Broken Blade) Movies [BD 1080p Hi10 FLAC][Dual-Audio] :: Nyaa](https://nyaa.si/view/1498421)
 	 - sub:
 		 - 
 
 ---
- -  
+ -  [[Bungou Stray Dogs - Dead Apple]]
 	 - raw:  
 		 - [[VCB-Studio] Bungou Stray Dogs Dead Apple / 文豪ストレイドッグス DEAD APPLE 10-bit 1080p HEVC BDRip [Movie Fin] :: Nyaa](https://nyaa.si/view/1117391)
 	 - sub:
@@ -182,7 +182,7 @@
 		 - 
 
 ---
- -  
+ -  [[Kuro no Su - Chronus]]
 	 - raw:  
 		 - [[Saizen]_Chronus_-_Anime Mirai_2014_[v2][1080p][BD][F3CF020D].mkv :: Nyaa](https://nyaa.si/view/561195)
 	 - sub:
