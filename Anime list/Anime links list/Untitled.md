@@ -1365,7 +1365,7 @@
 	 - Comparisons:
 		 - [The Wind Rises - Kawaiika-Raws vs REVO vs THORA vs MGVC JPN BD vs Miyazaki Collection MGVC JPN BD vs Disney USA BD | Slowpoke Pics](https://slow.pics/c/mCPs4Nmf)
  ---
-  -  
+  -  [[Tiger  Bunny Movie 1 - The Beginning]]
 	 - raw:  
 		 - [[sam] Tiger & Bunny (BD 1080p x264 Hi10P FLAC) :: Nyaa](https://nyaa.si/view/1416054)
 	 - sub:
