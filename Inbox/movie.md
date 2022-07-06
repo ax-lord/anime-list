@@ -71,4 +71,17 @@
   [[Tenkuu no Shiro Laputa]]
    - Subscene [[MSOMS & Dragonier] Tenkuu no Shiro Laputa](https://subscene.com/subtitles/castle-in-the-sky/arabic/2315598)
   ---
+  [[Cencoroll Connect]]
+   - [[Raigeki] Cencoroll Connect](https://raigekisubs.wordpress.com/2022/05/02/cencoroll-connect/)
+  ---
+  [[Kaijuu no Kodomo]]
+   - [Assassin Sub DDL](https://ddl.assassinssub.org/Movies/11%20Kaijuu%20No%20Kodomo/)
+   - Subscene [[HunterKunA] Kaijuu no Kodomo](https://subscene.com/subtitles/children-of-the-sea/arabic/2149039)
+  ---
+  [[Hoshi wo Ou Kodomo]]
+   - Subscene [[hoseki] Hoshi wo ou kodomo](https://subscene.com/subtitles/children-who-chase-lost-voices-from-deep-below-hoshi-o-ou-kodomo/arabic/1420316)
+  ---
+  [[Kuro no Su - Chronus]]
+   - [[Chronus [Bluray] || فيلم كرونوس](https://mfansub-anime.blogspot.com/2020/05/chronus-bluray.html) 
+  ---
   
