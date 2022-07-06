@@ -10,6 +10,7 @@
    - Subscene [[ayzen sama] Momo e no tegami (A Letter to Momo)](https://subscene.com/subtitles/a-letter-to-momo/arabic/706507)
   ---
   [[Koe no Katachi]]
-   - 
+   -  [Assassin Sub DDL](https://ddl.assassinssub.org/Movies/01%20Koe%20No%20Katachi/)
+   - [Mirai-Subs spreadsheets Projects Download](https://goo.gl/MuFCsg)
   ---
   
