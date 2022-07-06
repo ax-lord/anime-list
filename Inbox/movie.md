@@ -82,6 +82,21 @@
    - Subscene [[hoseki] Hoshi wo ou kodomo](https://subscene.com/subtitles/children-who-chase-lost-voices-from-deep-below-hoshi-o-ou-kodomo/arabic/1420316)
   ---
   [[Kuro no Su - Chronus]]
-   - [[Chronus [Bluray] || فيلم كرونوس](https://mfansub-anime.blogspot.com/2020/05/chronus-bluray.html) 
+   - [[M FanSub] Chronus](https://mfansub-anime.blogspot.com/2020/05/chronus-bluray.html) 
+  ---
+[[Clannad Movie]]
+   - Subscene [Clannad: The Motion Picture](https://subscene.com/subtitles/clannad-the-motion-picture/arabic/1061021)
+  ---
+  [[Code Geass - Fukkatsu no Lelouch]]
+   - [AmirNM](https://mega.nz/file/HjYjWCKI#mRI-jBvznyhhOCt1IeTNtQp9ZX2uOl1T9Lkhzwx7JkE)
+   - [[Abdulillah-sub] Code geass Fukkatsu no Lelouch](https://mega.nz/file/HjYjWCKI#mRI-jBvznyhhOCt1IeTNtQp9ZX2uOl1T9Lkhzwx7JkE) 
+   - [[STARZPLAY] Code Geass: Fukkatsu no Lelouch](https://subscene.com/subtitles/code-geass-fukkatsu-no-lelouch/arabic/2794002)
+  ---
+  [[Colorful (Movie)]]
+   - [Mirai-Subs](https://mega.nz/file/IwhBTTQB#1YoH6yjSP-9CshYzkJgnLAI9xL_Te990G0mR7wpHeJc)
+   - Subscene [[Doki] Colorful](https://subscene.com/subtitles/colorful-karafuru/arabic/983096)
+  ---
+  [[Cowboy Bebop - Tengoku no Tobira]]
+   - 
   ---
   
