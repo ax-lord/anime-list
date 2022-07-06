@@ -63,9 +63,12 @@
    - [[vonsub] Bungou Stray Dogs: Dead Apple](https://vonsub.blogspot.com/2019/03/BungouStrayDogsDeadApple.html)
   ---
   [[Cardcaptor Sakura Movie]]
-   - [[Kaede & M i M i] Cardcaptor Sakura Movie 1](https://subscene.com/subtitles/cardcaptor-sakura-the-movie-gekijban-kdokyaput-sakura/arabic/2304158)
+   - Subscene [[Kaede & M i M i] Cardcaptor Sakura Movie 1](https://subscene.com/subtitles/cardcaptor-sakura-the-movie-gekijban-kdokyaput-sakura/arabic/2304158)
   ---
   [[Cardcaptor Sakura Movie 2 - Fuuin Sareta Card]]
-   - 
+   - Subscene [[ISEUL & Kaito] Cardcaptor Sakura Movie 2: Fuuin Sareta Card](https://subscene.com/subtitles/cardcaptor-sakura-the-sealed-card-kdokaput-sakura-fin-sareta-kdo/arabic/2570011)
+  ---
+  [[Tenkuu no Shiro Laputa]]
+   - Subscene [[MSOMS & Dragonier] Tenkuu no Shiro Laputa](https://subscene.com/subtitles/castle-in-the-sky/arabic/2315598)
   ---
   

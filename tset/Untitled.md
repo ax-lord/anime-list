@@ -18,7 +18,7 @@ Bokura no Nanokakan Sensou https://sawada-sub.blogspot.com/2020/05/bokura-no-nan
 Boruto: Naruto the Movie https://omarhidanfansub.blogspot.com/2016/07/boruto-naruto-movie-bluray.html
 =Broken Blade https://devil-fansubs.blogspot.com/2013/08/devil-fansub-broken-blade.html
 Bungou Stray Dogs: Dead Apple https://www.winoxa.info/2018/09/bungo-stray-dogs-dead-apple.html https://vonsub.blogspot.com/2019/03/BungouStrayDogsDeadApple.html
-Cardcaptor Sakura Movies https://subscene.com/subtitles/cardcaptor-sakura-the-movie-gekijban-kdokyaput-sakura/arabic/2304158 [Subscene - Cardcaptor Sakura Movie 2: Fuuin Sareta Card Arabic subtitle](https://subscene.com/subtitles/cardcaptor-sakura-the-sealed-card-kdokaput-sakura-fin-sareta-kdo/arabic/2570011)
+Cardcaptor Sakura Movies https://subscene.com/subtitles/cardcaptor-sakura-the-movie-gekijban-kdokyaput-sakura/arabic/2304158 https://subscene.com/subtitles/cardcaptor-sakura-the-sealed-card-kdokaput-sakura-fin-sareta-kdo/arabic/2570011
 Tenkuu no Shiro Laputa  https://subscene.com/subtitles/castle-in-the-sky/arabic/2315598
 Cencoroll Connect https://raigekisubs.wordpress.com/2022/05/02/cencoroll-connect/
 Kaijuu no Kodomo https://ddl.assassinssub.org/Movies/11%20Kaijuu%20No%20Kodomo/ https://subscene.com/subtitles/children-of-the-sea/arabic/2149039
