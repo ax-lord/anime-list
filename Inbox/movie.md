@@ -10,7 +10,33 @@
    - Subscene [[ayzen sama] Momo e no tegami (A Letter to Momo)](https://subscene.com/subtitles/a-letter-to-momo/arabic/706507)
   ---
   [[Koe no Katachi]]
-   -  [Assassin Sub DDL](https://ddl.assassinssub.org/Movies/01%20Koe%20No%20Katachi/)
-   - [Mirai-Subs spreadsheets Projects Download](https://goo.gl/MuFCsg)
+   - [Assassin Sub DDL](https://ddl.assassinssub.org/Movies/01%20Koe%20No%20Katachi/)
+   - [Mirai-Subs spreadsheets Projects](https://goo.gl/MuFCsg)
+   - [Drakou : Koe no Katachi - Movie | فلم الصمّاء](https://drakou-subs.blogspot.com/2017/05/koe-no-katachi-movie.html)
   ---
+  [[Accel World - Infinite∞Burst]]
+   - Subscene [[Animeokoku0.blogspot]- Accel World: Infinite Burst](https://subscene.com/subtitles/accel-world-infinite-burst/arabic/1589909)
+  ---
+  [[Akira]]
+   - [[kuroko-subs] Akira Blu-ray](https://kuroko-subs.blogspot.com/2014/11/akira-bluray.html)
+  ---
+  [[Tenshi no Tamago]]
+   - [[Lucilfer] Tenshi no Tamago [BluRay] ](https://lucilfersubs.blogspot.com/2020/10/movie-tenshi-no-tamago-bluray.html)
+  ---
+  [[Waga Seishun no Arcadia]]
+   - [[athbul-khayal] Waga Seishun no Arcadia](https://athbul-khayal.net/waga-seishun-no-arcadiablu-ray/)
+  ---
+  [[Asura]]
+   - Subscene [[DAC & Sea-FS] Asura](https://subscene.com/subtitles/asura/arabic/2490617)
+  ---
+  [[Aura - Maryuuin Kouga Saigo no Tatakai]]
+   - [[kalaacom] Aura Maryuuinkouga Saigo no Tatakai](https://kalaacom.blogspot.com/2013/10/aura-maryuuinkouga-saigo-no-tatakai.html)
+  ---
+  [[Bayonetta - Bloody Fat]]
+   - Subscene [Bayonetta: Bloody Fate](https://subscene.com/subtitles/bayonetta-bloody-fate/arabic/868892)
+  ---
+  [[Kyoukai no Kanata Movie 1 - I'll Be Here - Kako-hen]]
+   - Subscene [[Al3asq & Zero-Kon] Kyoukai no Kanata - I'll Be Here - Kako-hen](https://subscene.com/subtitles/kyoukai-no-kanata-movie-ill-be-here-kako-hen/arabic/1376640)
+  ---
+  
   
