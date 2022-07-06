@@ -37,6 +37,17 @@
   ---
   [[Kyoukai no Kanata Movie 1 - I'll Be Here - Kako-hen]]
    - Subscene [[Al3asq & Zero-Kon] Kyoukai no Kanata - I'll Be Here - Kako-hen](https://subscene.com/subtitles/kyoukai-no-kanata-movie-ill-be-here-kako-hen/arabic/1376640)
+   - Subscene [[SorayA & PirateM] [Al3asq Team & Zero-Kon] Kyoukai no Kanata Movie 1: I'll Be Here - Kako-hen [BD] ](https://subscene.com/subtitles/kyoukai-no-kanata-movie-ill-be-here-kako-hen/arabic/2289864)
   ---
-  
+  [[Kyoukai no Kanata Movie 2 - I'll Be Here - Mirai-hen]]
+   - Subscene [[Al3asq & Zero-Kon] Kyoukai no Kanata - I'll Be Here - Mirai-hen](https://subscene.com/subtitles/beyond-the-boundary-movie-ill-be-here-mirai-hen/arabic/1376644)
+   - Subscene [[SorayA & PirateM] [Al3asq Team & Zero-Kon] Kyoukai no Kanata Movie 2: I'll Be Here - Mirai-hen](https://subscene.com/subtitles/beyond-the-boundary-movie-ill-be-here-mirai-hen/arabic/2289865)
+  ---
+  [[Da Yu Hai Tang (Movie)]]
+   - nyaa [[Omar Hidan] Big Fish and Begonia](https://omarhidanfansub.blogspot.com/2018/12/big-fish-and-begonia-movie-jpn-ver.html)
+  ---
+  [[Blood-C - The Last Dark]]
+   -  Subscene [[KT-FS] BLOOD-C - The Last Dark](https://subscene.com/subtitles/blood-c-the-last-dark/arabic/1301710)
+  ---
+  [[Bokura no Nanokakan Sensou]]
   
