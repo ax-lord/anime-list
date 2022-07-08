@@ -101,6 +101,8 @@
    - Subscene [Alaa Elassy + Devils-Fansubs + THE SAMO](https://subscene.com/subtitles/cowboy-bebop-the-movie-cowboy-bebop-tengoku-no-tobira/arabic/2461599)
   ---
   [[Date A Bullet - Dead or Bullet]]
-   - [AnimeSan & NGT](https://subscene.com/subtitles/date-a-bullet-zenpen-dead-or-bullet/arabic/2459126)
+   - Subscene [AnimeSan & NGT](https://subscene.com/subtitles/date-a-bullet-zenpen-dead-or-bullet/arabic/2459126)
+   - [AnimeSan & NGT](https://next-generation-team1.blogspot.com/2021/04/date-bullet-movies-bluray.html)
+   - [AnimeSan & NGT](https://animesan-subs.blogspot.com/2021/04/date-bullet-movies-bluray.html)
   ---
   
