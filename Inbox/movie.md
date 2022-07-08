@@ -97,6 +97,10 @@
    - Subscene [[Doki] Colorful](https://subscene.com/subtitles/colorful-karafuru/arabic/983096)
   ---
   [[Cowboy Bebop - Tengoku no Tobira]]
-   - 
+   - [3asq Upload Team](https://www.3asq.co/showthread.php?t=365196)
+   - Subscene [Alaa Elassy + Devils-Fansubs + THE SAMO](https://subscene.com/subtitles/cowboy-bebop-the-movie-cowboy-bebop-tengoku-no-tobira/arabic/2461599)
+  ---
+  [[Date A Bullet - Dead or Bullet]]
+   - [AnimeSan & NGT](https://subscene.com/subtitles/date-a-bullet-zenpen-dead-or-bullet/arabic/2459126)
   ---
   
