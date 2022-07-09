@@ -105,4 +105,64 @@
    - [AnimeSan & NGT](https://next-generation-team1.blogspot.com/2021/04/date-bullet-movies-bluray.html)
    - [AnimeSan & NGT](https://animesan-subs.blogspot.com/2021/04/date-bullet-movies-bluray.html)
   ---
+  [[Date A Live Movie - Mayuri Judgment]]
+   - [SolarStorm3 & Mugi](https://solarstorm-sub.blogspot.com/2018/06/date-live-mayuri-judgement-movie.html)
+   - Subscene [SolarStorm3](https://subscene.com/subtitles/date-a-live-movie-mayuri-judgment/arabic/2219415)
+  ---
+  [[Dead Leaves]]
+   - [Es-Bouz](https://es-bouz.blogspot.com/2020/04/dead-leaves.html)
+  ---
+  [[Death Billiards]]
+   - Subscene [SadLover](https://subscene.com/subtitles/death-billards/arabic/2260134)
+   - [SadLover](https://mega.nz/file/zRUFFBTZ#RKr7qMyEvdeNrR7Psg9jY4vFRP_0hTBqC0tWom8GUa8)
+  ---
+  [[Kimetsu no Yaiba Movie - Mugen Ressha-hen]]
+   - [Mugi Subs](https://mugi-subs.blogspot.com/2021/06/kimetsu-no-yaiba-movie-mugen-ressha-hen.html)
+  ---
+  [[Neon Genesis Evangelion - The End of Evangelion]]
+   - [Memories](https://nyaa.iss.ink/view/1254315) 
+  ---
+  [[Evangelion - 10 You Are (Not) Alone]]
+   - [Ryousha](https://nyaa.iss.ink/view/1254315) 
+  ---
+  [[Evangelion - 20 You Can (Not) Advance]]
+   - [Ryousha](https://nyaa.iss.ink/view/1254315) 
+  ---
+  [[Evangelion - 30 You Can (Not) Redo]]
+   - [kalaacom](https://mega.nz/file/qDIgjR4Q#Me0NyGGLjDZfBkM19TQuspk2o_IhfyJiIvsJiZWcQOs)
+   - Subscene [AMAZON](https://subscene.com/subtitles/evangelion-30-you-can-not-redo/arabic/2550502)
+  ---
+  [[Evangelion - 30+10 Thrice Upon a Time]]
+   - Subscene [AMAZON](https://subscene.com/subtitles/evangelion-30101-thrice-upon-a-time-shin-evangelion-gekijban/arabic/2550503)
+  ---
+  [[Rakuen Tsuihou]]
+   - Subscene [SadLover](https://subscene.com/subtitles/contact-the-filmmakers-on-imdbpro-see-rank-rakuen-tsuiho-expelled-from-paradise/arabic/1492425)
+  ---
+  [[Fatekaleid liner Prisma☆Illya - Prisma☆Phantasm]]
+   - [Rhythm-Sub](https://rhythm-sub.com/2020/01/01/fate-kaleid-liner-prisma%E2%98%86illya-movie-sekka-no-chikai-kuro-sakura-no-heya/)
+  ---
+  [[Fatestay night Movie - Heaven's Feel - I Presage Flower]]
+   - [Feitan](https://cdn.discordapp.com/attachments/436883123322617866/713341406042783824/Feitan_fate_stay_night_heavens_feel_presage_flower_.ass)
+   - [fattati](https://fattati.com/2018/05/12/fate-stay-night-movie-heavens-feel-i-presage-flower/)
+  ---
+  [[Fatestay night Movie - Heaven's Feel - II Lost Butterfly]]
+   - [Feitan](https://cdn.discordapp.com/attachments/436883123322617866/713377434371752047/Feitan_Fate_stay_night_Heavens_Feel_II_-_Lost_Butterfly.ass)
+   - [fattati](https://fattati.com/2019/08/22/fate-stay-night-movie-heavens-feel-ii-lost-butterfly-bluray/)
+  ---
+  [[Fatestay night Movie - Heaven's Feel - III Spring Song]]
+   - [Feitan](https://cdn.discordapp.com/attachments/436883123322617866/826861634924052580/Feitan_Fate_stay_night_Heavens_Feel_III_-_Spring_Song.ass)
+  ---
+  [[Uchiage Hanabi Shita kara Miru ka Yoko kara Miru ka]]
+   - [Caffeine World](https://caffeine-world.info/movies/%d9%81%d9%8a%d9%84%d9%85-uchiage-hanabi-shita-kara-miru-ka-yoko-kara-miru-ka-%d9%85%d8%aa%d8%b1%d8%ac%d9%85-%d8%a8%d9%84%d9%88%d8%b1%d8%a7%d9%8a/)
+  ---
+  [[Free! Take Your Marks]]
+   - Subscene [nuiem](https://subscene.com/subtitles/free-take-your-marks/arabic/2255023)
+  ---
+  [[Coquelicot-zaka kara]]
+   - [SGT](https://archive.org/details/SGTFromUpOnPoppyHillBD1920x1036X264FLAC.part1)
+   - [Omar Hidan](https://docs.google.com/uc?id=0BzUxBP8OOHEyNWRpcEIwRU4yck0&export=download) 
+  ---
+  [[Fullmetal Alchemist - The Sacred Star of Milos]]
+   - Subscene [Hagane](https://subscene.com/subtitles/fullmetal-alchemist-the-sacred-star-of-milos/arabic/2260982)
+  ---
   
