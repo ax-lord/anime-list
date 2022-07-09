@@ -267,6 +267,71 @@
    - [Caffeine World](https://caffeine-world.info/movies/koutetsujou-no-kabaneri-unato-kessen/)
   ---
   [[Kick-Heart]]
-   - 
+   - Subscene [www.alkendy.net](https://subscene.com/subtitles/kick-heart/arabic/1015726)
+  ---
+  [[Majo no Takkyuubin]]
+   - Subscene [Ryousha](https://subscene.com/subtitles/kikis-delivery-service-majo-no-takkyubin/arabic/1147595)
+  ---
+  [[Kizumonogatari I - Tekketsu-hen]]
+   - Subscene [Yagame-sub & Hotaka & Mugi](https://subscene.com/subtitles/kizumonogatari-part-1-tekketsu/arabic/2520531)
+   - [Mugi Sub](https://mugi-subs.blogspot.com/2016/07/kizumonogatari-i-tekketsu-hen-blu-ray.html)
+  ---
+  [[Kizumonogatari II - Nekketsu-hen]]
+   - Subscene [Yagame-sub & Hotaka & Mugi](https://subscene.com/subtitles/kizumonogatari-part-2-nekketsu-hen/arabic/2520533)
+   - [Mugi Subs](https://mugi-subs.blogspot.com/2016/12/kizumonogatari-ii-nekketsu-hen-blu-ray.html)
+  ---
+  [[Kizumonogatari III - Reiketsu-hen]]
+   - Subscene [Yagame-sub & Hotaka & Mugi](https://subscene.com/subtitles/kizumonogatari-iii-reiketsu-hen/arabic/2520534)
+   - [Mugi Subs](https://mugi-subs.blogspot.com/2017/07/kizumonogatari-iii-reiketsu-hen-blu-ray.html)
+  ---
+  [[Kono Subarashii Sekai ni Shukufuku wo! Spin-off - Kono Subarashii Sekai ni Bakuen wo!]]
+   - Subscene [ShareAnime](https://subscene.com/subtitles/kono-subarashii-sekai-ni-shukufuku-wo-kurenai-densetsu-konosuba-movie/arabic/2222750)
+   - Subscene [CrunchyRoll](https://subscene.com/subtitles/kono-subarashii-sekai-ni-shukufuku-wo-kurenai-densetsu-konosuba-movie/arabic/2181349)
+  ---
+  [[Kud Wafter]]
+   - [Next Generation Team](https://next-generation-team1.blogspot.com/2021/02/kud-wafter-ova.html)
+  ---
+  [[Toshokan Sensou - Kakumei no Tsubasa]]
+   - Subscene [Devils](https://subscene.com/subtitles/toshokan-sensou-kakumei-no-tsubasa/arabic/754171)
+  ---
+  [[Choujin Locke]]
+   - Subscene [muhammed ayzen](https://subscene.com/subtitles/choujin-locke-locke-the-superman/arabic/1435680)
+  ---
+  [[Omoi Omoware Furi Furare]]
+   - [Asahi Fansubs](https://asahi-fansubs.blogspot.com/2021/06/omoi-omoware-furi-furare-movie.html)
+   - [muth-team](https://muth-team.blogspot.com/2021/04/omoi-omoware-furi-furare.html)
+   - [Mejaow](https://mejaow.blogspot.com/2021/12/omoi-omoware-furi-furare-bd.html)
+  ---
+  [[Takanashi Rikka Kai - Chuunibyou demo Koi ga Shitai! Movie]]
+   - Subscene [SorayA](https://subscene.com/subtitles/takanashi-rikka-kai-chuunibyou-demo-koi-ga-shitai-movie/arabic/933468)
+  ---
+  [[Chuunibyou demo Koi ga Shitai! Movie - Take On Me]]
+   - [Athbul-Khayal](https://drive.google.com/drive/folders/16tqfY88KBDm-aLC37hGqBly0WegLQUDk)
+   - Subscene [Mohammad_Subs](https://subscene.com/subtitles/chuunibyou-demo-koi-ga-shitai-movie-take-on-me/arabic/1820607)
+   - Subscene [Mohammad_Subs & TaLoN](https://subscene.com/subtitles/chuunibyou-demo-koi-ga-shitai-movie-take-on-me/arabic/1823986)
+  ---
+  [[Yoake Tsugeru Lu no Uta]]
+   - [Mezzo](https://mezzosubs.blogspot.com/2018/05/blog-post.html)
+  ---
+  [[Made in Abyss Movie 3 - Fukaki Tamashii no Reimei]]
+   - [Scarlet Team](https://www.scarlet-tm.com/2020/10/made-in-abyss-movies-13-bluray.html)
+  ---
+  [[Mai Mai Shinko to Sennen no Mahou]]
+   - [MSOMS-ANIME](https://www.msoms-anime.net/showthread.php?t=184592)
+   - Subscene [muhammed ayzen](https://subscene.com/subtitles/mai-mai-miracle-maimai-shinko-to-sen-nen-no-mah/arabic/1421413)
+  ---
+  [[Sayonara no Asa ni Yakusoku no Hana wo Kazarou]]
+   - [Athbul-Khayal](https://drive.google.com/drive/folders/1-vUNYgqQt00DTfjZwLfQgfvJHFDFQbMh)
+   - [Assassin Sub DDL](https://ddl.assassinssub.org/Movies/09%20Sayonara%20No%20Asa%20Ni%20Yakusoku%20No%20Hana%20Wo%20Kazarou/)
+   - Subscene [mohammad subs](https://subscene.com/subtitles/sayonara-no-asa-ni-yakusoku-no-hana-o-kazarou/arabic/1874592)
+   - Subscene [MSOMS-ANIME](https://subscene.com/subtitles/sayonara-no-asa-ni-yakusoku-no-hana-o-kazarou/arabic/2222752)
+  ---
+  [[Memories]]
+   - [Dac-Fansubs](http://www.dacsubs.com/2015/11/memories-1995.html)
+   - Subscene [M!nato Sub & YouKai](https://subscene.com/subtitles/memories/arabic/2327279)
+   - Subscene [Abdullah @OW_AF](https://subscene.com/subtitles/memories/arabic/710477)  
+---
+  [[Metropolis]]
+   - Subscene [Phantom](https://subscene.com/subtitles/metropolis-metoroporisu/arabic/1521123)
   ---
   
