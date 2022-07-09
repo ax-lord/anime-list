@@ -163,6 +163,36 @@
    - [Omar Hidan](https://docs.google.com/uc?id=0BzUxBP8OOHEyNWRpcEIwRU4yck0&export=download) 
   ---
   [[Fullmetal Alchemist - The Sacred Star of Milos]]
-   - Subscene [Hagane](https://subscene.com/subtitles/fullmetal-alchemist-the-sacred-star-of-milos/arabic/2260982)
+   - Subscene [Hagane](https://subscene.com/subtitles/fullmetal-alchemist-the-sacred-star-of-milos/arabic/1802134)
+   - Subscene [Devil-Fansub](https://subscene.com/subtitles/fullmetal-alchemist-the-sacred-star-of-milos/arabic/1802135)
+  ---
+  [[Garo Movie - Divine Flame]]
+   - [hikki-sub](https://hikki-sub.blogspot.com/2021/07/garo-movie-divine-flame-blu-ray-1080p.html)
+  ---
+  [[Koukaku Kidoutai - Shin Movie]]
+   - [Scarlet Team](https://www.scarlet-tm.com/2016/01/ghost-in-shell-new-movie-2015.html)
+  ---
+  [[Innocence|Ghost in the Shell 2: Innocence]] 
+   - subscene [Kuroko-subs](https://subscene.com/subtitles/ghost-in-the-shell-2-innocence-inosensu-kkaku-kidtai/arabic/1628036)
+   - [Kuroko-subs](https://mega.nz/folder/0yYTgBhQ#2G5mEFvVdWCsBaX_17NOUQ)
+  ---
+  [[Koukaku Kidoutai 20]]
+   - [Rhythm-Sub](https://rhythm-sub.com/2020/01/17/koukaku-kidoutai-2-0/)
+  ---
+  [[Gintama Movie 1 - Shinyaku Benizakura-hen]]
+   - Subscene [Kyntama.blogspot.com](https://subscene.com/subtitles/gintama-movie-1-shinyaku-benizakura-hen/arabic/1339083)
+  ---
+  [[Gintama Movie 2 - Kanketsu-hen - Yorozuya yo Eien Nare]]
+   - [Yaha-Sub](https://nyaa.iss.ink/view/507762)
+   - Subscene [Kyntama.blogspot.com](https://subscene.com/subtitles/gintama-the-final-chapter-be-forever-yorozuya/arabic/1315303)
+  ---
+  [[Gintama - The Final]]
+   - [Yaha-Sub](https://nyaa.iss.ink/view/1419919)
+  ---
+  [[Girls  Panzer Movie]]
+   - [Phantom](https://mega.nz/file/dM8DGaQR#GDlUWsfqt2ZEGNBSj6mfdm2sFS06U-T3woqJ3DSiIns)
+  ---
+  [[Goblin Slayer - Goblin's Crown]]
+   - [Fetching Title#9o91](https://next-generation-team1.blogspot.com/2021/05/goblin-slayer-goblins-crown-bluray.html)
   ---
   
