@@ -64,7 +64,7 @@ HELLS https://subscene.com/subtitles/hells/arabic/2268405?status=retry
 Sora no Aosa wo Shiru Hito yo https://subscene.com/subtitles/her-blue-sky/arabic/2236187 http://mohbaboo-subs.win/sora-no-aosa-wo-shiru-hito-yo-bluray/
 High Speed! -Free! Starting Days https://subscene.com/subtitles/high-speed-free-starting-days/arabic/2466751
 Hotarubi no Mori e https://animesan-subs.blogspot.com/2021/09/bd-web-1080p-hunterkuna.html https://subscene.com/subtitles/hotarubi-no-mori-e-2011/arabic/2576171 https://subscene.com/subtitles/hotarubi-no-mori-e-2011/arabic/1917185 https://subscene.com/subtitles/hotarubi-no-mori-e-2011/arabic/2128985 https://subscene.com/subtitles/hotarubi-no-mori-e-2011/arabic/786963
-Howl no Ugoku Shiro 
+Howl no Ugoku Shiro https://nyaa.iss.ink//view/1178076 https://nya.iss.one/view/973357
 =Kimi no Suizou wo Tabetai https://drive.google.com/drive/folders/1Q5M03OLudct1OGm-Tw7EADd_l29swFhi https://subscene.com/subtitles/kimi-no-suizou-wo-tabetai-i-want-to-eat-your-pancreas/arabic/2770723 https://athbul-khayal.net/kimi-no-suizou-wo-tabetai-blu-ray/
 Zutto Mae Kara Suki Deshita.: Kokuhaku Jikkou Iinkai https://fattati.com/2016/10/13/zutto-mae-kara-suki-deshita-kokuhaku-jikkou-iinkai-movie/
 =Kono Sekai no Katasumi ni https://ddl.assassinssub.org/Movies/03%20Kono%20Sekai%20No%20Katasumi%20Ni/ https://subscene.com/subtitles/in-this-corner-of-the-world/arabic/2498730

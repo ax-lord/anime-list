@@ -193,6 +193,80 @@
    - [Phantom](https://mega.nz/file/dM8DGaQR#GDlUWsfqt2ZEGNBSj6mfdm2sFS06U-T3woqJ3DSiIns)
   ---
   [[Goblin Slayer - Goblin's Crown]]
-   - [Fetching Title#9o91](https://next-generation-team1.blogspot.com/2021/05/goblin-slayer-goblins-crown-bluray.html)
+   - [Next Generation Team](https://next-generation-team1.blogspot.com/2021/05/goblin-slayer-goblins-crown-bluray.html)
+  ---
+  [[Hotaru no Haka]]
+   - [3asq.tv](https://nyaa.iss.ink//view/1178076)
+  ---
+  [[Onna Senshi Efe  Jira - Gude no Monshou]]
+   - [Sasuke FanSub](https://sasukefansub05.blogspot.com/2022/03/onna-senshi-efe-jira-gude-no-monshou.html)
+  ---
+  [[Hanasaku Iroha Movie - Home Sweet Home]]
+   - [Rhythm-Sub](https://rhythm-sub.com/2020/07/18/hanasaku-iroha-home-sweet-home/)
+   - Subscene [Asahi](https://subscene.com/subtitles/hanasaku-iroha-home-sweet-home/arabic/2253421)
+  ---
+  [[Dounika Naru Hibi]]
+   - Subscene [AbrahamSubs](https://subscene.com/subtitles/dounika-naru-hibi-happy-go-lucky-days/arabic/2524969)
+  ---
+  [[Harmonie]]
+   - Subscene [Al3asq-Team](https://subscene.com/subtitles/harmonie/arabic/1264843)
+   - Subscene [Pirates & Yaha](https://subscene.com/subtitles/harmonie/arabic/2322842)
+  ---
+  [[Harmony]]
+   - Subscene [CrowSubs & Zero-Kon](https://subscene.com/subtitles/harmony/arabic/1842889)
+  ---
+  [[Hashire! Shiroi Ookami]]
+   - [Tsubasanime](https://tsubasanime.blogspot.com/2021/05/hashire-shiroi-ookami.html)
+  ---
+  [[Hello World]]
+   - [Athbul-Khayal](https://drive.google.com/drive/folders/17Z2DtVe8IKnkIDlvzeOYC76jvUixROvF)
+  ---
+  [[Hells]]
+   - Subscene [Fukuro subs](https://subscene.com/subtitles/hells/arabic/2268405)
+  ---
+  [[Sora no Aosa wo Shiru Hito yo]]
+   - Subscene [Asahie](https://subscene.com/subtitles/her-blue-sky/arabic/2236187)
+   - [mohbaboo-subs](http://mohbaboo-subs.win/sora-no-aosa-wo-shiru-hito-yo-bluray/)
+  ---
+  [[High☆Speed! Movie - Free! Starting Days]]
+   - [Subscene - High Speed!: Free! Starting Days Arabic hearing impaired subtitle](https://subscene.com/subtitles/high-speed-free-starting-days/arabic/2466751)
+  ---
+  [[Hotarubi no Mori e]]
+   - [HunterKunA](https://animesan-subs.blogspot.com/2021/09/bd-web-1080p-hunterkuna.html)
+   - Subscene [3asq & shenlongsubs & Hagane](https://subscene.com/subtitles/hotarubi-no-mori-e-2011/arabic/1917185)
+   - Subscene [BlackOcean](https://subscene.com/subtitles/hotarubi-no-mori-e-2011/arabic/2128985)
+   - Subscene [Devil Fansub](https://subscene.com/subtitles/hotarubi-no-mori-e-2011/arabic/786963)
+  ---
+  [[Howl no Ugoku Shiro]]
+   - [Omar Hidan](https://nya.iss.one/view/973357)
+   - [3asq Upload Team](https://nyaa.iss.ink//view/1178076)
+  ---
+  [[Kimi no Suizou wo Tabetai]]
+   - [Athbul-Khayal](https://drive.google.com/drive/folders/1Q5M03OLudct1OGm-Tw7EADd_l29swFhi)
+   - Subscene [Athbul-Khayal](https://subscene.com/subtitles/kimi-no-suizou-wo-tabetai-i-want-to-eat-your-pancreas/arabic/2770723)
+  ---
+  [[Zutto Mae kara Suki deshita - Kokuhaku Jikkou Iinkai]]
+   - [Fattati](https://fattati.com/2016/10/13/zutto-mae-kara-suki-deshita-kokuhaku-jikkou-iinkai-movie/)
+  ---
+  [[Kono Sekai no Katasumi ni]]
+   - [Assassin Sub](https://ddl.assassinssub.org/Movies/03%20Kono%20Sekai%20No%20Katasumi%20Ni/)
+   - Subscene [Mohammad_Subs](https://subscene.com/subtitles/in-this-corner-of-the-world/arabic/2498730)
+  ---
+  [[Dungeon ni Deai wo Motomeru no wa Machigatteiru Darou ka Movie - Orion no Ya]]
+   - Subscene [SorayA](https://subscene.com/subtitles/dungeon-ni-deai-wo-motomeru-no-wa-machigatteiru-darou-ka-movie-orion-no-ya/arabic/2014557)
+   - Subscene [Nigel](https://subscene.com/subtitles/dungeon-ni-deai-wo-motomeru-no-wa-machigatteiru-darou-ka-movie-orion-no-ya/arabic/2012698)
+   - Subscene [MohammadSubs](https://subscene.com/subtitles/dungeon-ni-deai-wo-motomeru-no-wa-machigatteiru-darou-ka-movie-orion-no-ya/arabic/2014593)
+   - [Hikki-Sub](https://hikki-sub.blogspot.com/2019/08/danmachi-movie-arrow-of-orion-bdrip.html)
+  ---
+  [[K-On! Movie]]
+   - Subscene [shsmd & Mohammed](https://subscene.com/subtitles/k-on-movie/arabic/2056296)
+   - Subscene [Sawada](https://subscene.com/subtitles/k-on-movie/arabic/2384782)
+  ---
+  [[Koutetsujou no Kabaneri Movie 3 - Unato Kessen]]
+   - [Mugi Subs](https://mugi-subs.blogspot.com/2019/08/koutetsujou-no-kabaneri-movie-unato.html)
+   - [Caffeine World](https://caffeine-world.info/movies/koutetsujou-no-kabaneri-unato-kessen/)
+  ---
+  [[Kick-Heart]]
+   - 
   ---
   
