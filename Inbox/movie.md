@@ -501,3 +501,53 @@
    - [Nigel](https://subscene.com/subtitles/youjo-senki-movie-rus-sub/arabic/2045531) #Subscene 
    - [SorayA](https://subscene.com/subtitles/youjo-senki-movie-rus-sub/arabic/2510258) #Subscene 
   ---
+[[Selector Destructed WIXOSS Movie]]
+   - [AnimeStorm](https://subscene.com/subtitles/selector-destructed-wixoss-movie/arabic/1843632) #Subscene 
+  ---
+[[Slam Dunk (Movie)]]
+   - [Son_Goku](https://nyaa.iss.ink/view/1278458) #nyaa 
+  ---
+[[Slam Dunk - Zenkoku Seiha Da! - Sakuragi Hanamichi]]
+   - [Son_Goku](https://nyaa.iss.ink/view/1278458) #nyaa  
+  ---
+[[Slam Dunk - Shouhoku Saidai no Kiki! Moero Sakuragi Hanamichi]]
+   - [Son_Goku](https://nyaa.iss.ink/view/1278458) #nyaa 
+  ---
+[[Slam Dunk - Hoero Basketman-damashii! Hanamichi to Rukawa no Atsuki Natsu]]
+   - [Son_Goku](https://nyaa.iss.ink/view/1278458)  #nyaa 
+  ---
+[[Hibike! Euphonium Movie 1 - Kitauji Koukou Suisougaku-bu e Youkoso]]
+   - [Rhythm-Sub](https://rhythm-sub.com/2020/01/02/hibike-euphonium-movie-1-kitauji-koukou-suisougaku-bu-e-youkoso/) #nyaa 
+  ---
+[[Hibike! Euphonium Movie 2 - Todoketai Melody]]
+   - [Mohammad_Subs](https://subscene.com/subtitles/gekijouban-hibike-euphonium-todoketai-melody/arabic/1816714) #Subscene 
+  ---
+[[Hibike! Euphonium Movie 3 - Chikai no Finale]]
+   - [Sawada-Sub](https://subscene.com/subtitles/sound-euphonium-the-movie-finale-oath/arabic/2379329) #Subscene 
+   - [Sawada-Sub](https://mega.nz/file/RuBl2KgC#0ugb2rrEQHmnyytKenqP4qXqSVgj-9mguBK6_Puo9I0)
+  ---
+[[Sen to Chihiro no Kamikakushi]]
+   - [VEGETA](https://nyaa.iss.ink/view/450045) #nyaa 
+  ---
+[[Steins;Gate Movie - Fuka Ryouiki no Déjà vu]]
+   - [KIYOSHI](https://subscene.com/subtitles/steinsgate-the-movie-loading-area-of-dj-vu/arabic/1304589) #Subscene 
+   - [Orange Hokage & Kuran-Sama](https://subscene.com/subtitles/steinsgate-the-movie-loading-area-of-dj-vu/arabic/838480) #Subscene 
+   - [Dantalin-sub & M-EnC](https://subscene.com/subtitles/steinsgate-the-movie-loading-area-of-dj-vu/arabic/2304814) #Subscene 
+  ---
+[[Summer Ghost]]
+   - [LUNATIC FANSUB](https://lunaticfs.blogspot.com/2022/04/summer-ghost-2021-blu-ray.html)
+   - [Athbul-Khayal](https://drive.google.com/drive/folders/1rdOLbPBTb4Y_GYWPYfXUy9UOv6au7h0l)
+  ---
+[[Sword Art Online Movie - Ordinal Scale]]
+   - [Mugi & Zero-Kon](https://subscene.com/subtitles/sword-art-online-the-movie-ordinal-scale/arabic/1849423) #Subscene 
+   - [AmmarAnimeSub](https://www.mediafire.com/folder/w3k9s9eofflup/Sword+Art+Online+Movie+-+Ordinal+Scale)
+  ---
+[[Stranger - Mukou Hadan]]
+   - [VBS & mohbaboo](https://subscene.com/subtitles/sword-of-the-stranger/arabic/1435412) #Subscene 
+   - [mohbaboo](http://mohbaboo-subs.win/movie-mukou-hadan_1/)
+   - [Devils-fansubs](https://devil-fansubs.blogspot.com/2013/09/sword-of-stranger-bd.html)
+  ---
+[[Tailenders]]
+   - [KenjoWorld](https://subscene.com/subtitles/tailenders/arabic/1474229) #Subscene 
+   - [mohbaboo](https://subscene.com/subtitles/tailenders/arabic/1211471) #Subscene 
+  ---
