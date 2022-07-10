@@ -437,13 +437,55 @@
    - [3asq Upload Team](https://nyaa.iss.ink//view/1178076) #nyaa 
   ---
 [[Kurenai no Buta]]
-   - [[Omar Hidan] Studio Ghibli Movies [BD720P][Ara,Jap,Eng,Fre] :: Nyaa ISS](https://nya.iss.one/view/973357)
-   - [Fetching Title#oyc4](https://nyaa.iss.ink//view/1178076)
-   - 
+   - [Omar Hidan](https://nya.iss.one/view/973357)
+   - [3asq Upload Team](https://nyaa.iss.ink//view/1178076)
+   - [7b7b](https://subscene.com/subtitles/porco-rosso-kurenai-no-buta/arabic/1996894) #Subscene 
   ---
 [[Mononoke Hime]]
-   - 
-  ---
+   - [SBO-SoFT](https://subscene.com/subtitles/princess-mononoke-mononoke-hime/arabic/158620) #Subscene 
+   - [AWF-Fansub](https://subscene.com/subtitles/princess-mononoke-mononoke-hime/arabic/860109) #Subscene 
+   - [Omar Hidan](https://nya.iss.one/view/973357)
+   - [3asq Upload Team](https://nyaa.iss.ink//view/1178076)
+   - ---
 [[Promare]]
+   - [Mugi-nZk](https://subscene.com/subtitles/promare/arabic/2140119) #Subscene 
+  ---
+[[Nerawareta Gakuen]]
+   - [kalaacom](https://subscene.com/subtitles/nerawareta-gakuen/arabic/756225) #Subscene 
+  ---
+[[Psycho-Pass Movie]]
+   - [Yaha-Sub & Zero-Kon](https://subscene.com/subtitles/psycho-pass-movie/arabic/1193187) #Subscene 
+  ---
+[[Psycho-Pass - Sinners of the System Case1 - Tsumi to Batsu]]
+   - [Next Generation Team](https://next-generation-team1.blogspot.com/2021/01/psycho-pass-sinners-of-system-case1.html)
+   - [Psycho-Pass: Sinners of the System Case.1 - Tsumi to Bachi - AnteikuSubs](https://anteikusubs.blogspot.com/2019/11/Psycho-PassSinnersoftheSystemCase1-TsumitoBachi.html)
+  ---
+[[Psycho-Pass - Sinners of the System Case2 - First Guardian]]
+   - [AnteikuSubs](https://anteikusubs.blogspot.com/2019/11/Psycho-Pass-Sinners-of-the-System-Case-2-First-Guardian.html?m=1)
+  ---
+[[Psycho-Pass - Sinners of the System Case3 - Onshuu no Kanata ni＿＿]]
+   - [AnteikuSubs](https://anteikusubs.blogspot.com/2019/11/Psycho-Pass-Sinners-of-the-System-Case-3-Onshuu-no-Kanata-ni.html?m=1)
+  ---
+[[Mahou Shoujo Madoka★Magica Movie 1 - Hajimari no Monogatari]]
+   - [Rhythm-Sub](https://rhythm-sub.com/2020/01/16/mahou-shoujo-madoka%e2%98%85magica-movie-1-hajimari-no-monogatari/)
+  ---
+[[Mahou Shoujo Madoka★Magica Movie 2 - Eien no Monogatari]]
+   - [Rhythm-Sub](https://rhythm-sub.com/2020/01/06/mahou-shoujo-madoka%e2%98%85magica-movie-2-eien-no-monogatari/)
+  ---
+[[Mahou Shoujo Madoka★Magica Movie 3 - Hangyaku no Monogatari]]
+   - [Rhythm-Sub](https://rhythm-sub.com/2020/01/06/mahou-shoujo-madoka%e2%98%85magica-movie-3-hangyaku-no-monogatari/)
+   - [Mezzo](https://mezzosubs.blogspot.com/2020/01/mahou-shoujo-madokamagica-hangyaku-no.html)
+  ---
+[[Seishun Buta Yarou wa Yumemiru Shoujo no Yume wo Minai]]
+   - [Es-Bouz](https://es-bouz.blogspot.com/2020/01/aobuta-movie.html)
+   - [sawada-sub](https://subscene.com/subtitles/rascal-does-not-dream-of-a-dreaming-girl-seishun-buta-yarou-wa-yumemiru-shoujo-no-yume-wo-minai/arabic/2092604) #Subscene 
+  ---
+[[Redline]]
+   - [Alkendy](https://subscene.com/subtitles/redline-2009/arabic/2181017) #Subscene 
+  ---
+[[Kimi to Nami ni Noretara]]
+   - [Fetching Title#5v4o](https://www.winoxa.info/2020/01/kimi-to-nami-ni-noretara-ride-your-wave.html)
+  ---
+[[Riding Bean]]
    - 
   ---
