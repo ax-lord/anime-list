@@ -551,3 +551,18 @@
    - [KenjoWorld](https://subscene.com/subtitles/tailenders/arabic/1474229) #Subscene 
    - [mohbaboo](https://subscene.com/subtitles/tailenders/arabic/1211471) #Subscene 
   ---
+[[Ged Senki]]
+   - [Omar Hidan](https://nya.iss.one/view/973357)
+   - [Kudo-subs](https://subscene.com/subtitles/tales-from-earthsea-gedo-senki/arabic/860177) #Subscene 
+   - [Pirates & Behelit](https://subscene.com/subtitles/tales-from-earthsea-gedo-senki/arabic/1387831) #Subscene 
+  ---
+[[Tamako Love Story]]
+   - [Sawada-Sub](https://sawada-sub.blogspot.com/2021/07/tamako-love-story.html)
+   - [SilverBoy & Stardima](https://subscene.com/subtitles/tamako-love-story/arabic/2106358) #Subscene 
+  ---
+[[Tekkon Kinkreet]]
+   - [Scarlet Team](https://www.scarlet-tm.com/2018/07/tekkon-kinkret-movie-bluray.html)
+  ---
+[[Kokoro ga Sakebitagatterunda]]
+   - [Rhythm-Sub](https://rhythm-sub.com/2020/01/11/kokoro-ga-sakebitagatterunda/)
+  ---
