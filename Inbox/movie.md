@@ -566,3 +566,84 @@
 [[Kokoro ga Sakebitagatterunda]]
    - [Rhythm-Sub](https://rhythm-sub.com/2020/01/11/kokoro-ga-sakebitagatterunda/)
   ---
+[[Bakemono no Ko]]
+   - [Mirai-Subs](https://docs.google.com/spreadsheets/d/1Yp5kuGJyQIDLDiA8SnYu67lOls3mmCqdx0TuFVNBykQ/edit#gid=0)
+   - [hoseki](https://subscene.com/subtitles/the-boy-and-the-beast/arabic/1350445) #Subscene 
+  ---
+[[Hana to Alice - Satsujin Jiken]]
+   - [Mirai-Subs](https://docs.google.com/spreadsheets/d/1Yp5kuGJyQIDLDiA8SnYu67lOls3mmCqdx0TuFVNBykQ/edit#gid=0)
+   - [mezzo-subs](https://subscene.com/subtitles/hana-to-alice-satsujin-jiken/arabic/1194624) #Subscene 
+  ---
+[[Neko no Ongaeshi]]
+   - [Grace](https://gracefulsubs.wordpress.com/2019/05/12/neko-no-ongaeshi/)
+   - [alkendy](https://alkendy.net/archives/9451)
+  ---
+[[Suzumiya Haruhi no Shoushitsu]]
+   - 
+  ---
+[[Kara no Kyoukai Movie 1 - Fukan Fuukei]]
+   - 
+  ---
+[[Kara no Kyoukai Movie 2 - Satsujin Kousatsu (Zen)]]
+   - 
+  ---
+[[Kara no Kyoukai Movie 3 - Tsuukaku Zanryuu]]
+   - 
+  ---
+[[Kara no Kyoukai Movie 4 - Garan no Dou]]
+   - 
+  ---
+[[Kara no Kyoukai Movie 5 - Mujun Rasen]]
+   - 
+  ---
+[[Kara no Kyoukai Movie 6 - Boukyaku Rokuon]]
+   - 
+  ---
+[[Kara no Kyoukai Movie 7 - Satsujin Kousatsu (Go)]]
+   - 
+  ---
+[[Kara no Kyoukai Movie 8 - Shuushou]]
+   - 
+  ---
+[[Kara no Kyoukai Movie - Mirai Fukuin]]
+   - 
+  ---
+[[Kara no Kyoukai Movie - Mirai Fukuin - Extra Chorus]]
+   - 
+  ---
+[[Kotonoha no Niwa]]
+   - 
+  ---
+[[Toki wo Kakeru Shoujo]]
+   - 
+  ---
+[[Mahouka Koukou no Rettousei Movie - Hoshi wo Yobu Shoujo]]
+   - 
+  ---
+[[Suki ni Naru Sono Shunkan wo - Kokuhaku Jikkou Iinkai]]
+   - 
+  ---
+[[Yoru wa Mijikashi Arukeyo Otome]]
+   - 
+  ---
+[[Kumo no Mukou Yakusoku no Basho]]
+   - 
+  ---
+[[Toaru Hikuushi e no Tsuioku]]
+   - 
+  ---
+[[Karigurashi no Arrietty]]
+   - 
+  ---
+[[The Sky Crawlers]]
+   - 
+  ---
+[[Kaze Tachinu]]
+   - 
+  ---
+[[Tiger  Bunny Movie 1 - The Beginning]]
+   - 
+  ---
+[[]]
+   - 
+  ---
