@@ -373,11 +373,77 @@
    - [MSOMS & Dragonier](https://mega.nz/file/fJwnzCZb#Krp3gV3wqvRN1hrzvHLFqFBcVsK2nDbpMf7-wlisksM)
 ---
 [[Juubee Ninpuuchou]]
-   - 
+   -  [https://www.ar-jimaku.blitedesu.net/](https://www.ar-jimaku.blitedesu.net/)
   ---
 [[No Game No Life - Zero]]
-   - 
+   - [Mugi & Zero-kon](https://subscene.com/subtitles/no-game-no-life-zero/arabic/1729406)
   ---
 [[Ongaku]]
+   - [DarkStorm](https://subscene.com/subtitles/on-gaku-our-sound-ongaku/arabic/2766915) #Subscene 
+  ---
+[[One Piece Movie 14 - Stampede]]
+   - [Phantom](https://subscene.com/subtitles/one-piece-stampede/arabic/2162632) #Subscene 
+   - [NightBaron](https://subscene.com/subtitles/one-piece-stampede/arabic/2500024) #Subscene 
+   - [STARZPLAY & FIS & Almighty](https://subscene.com/subtitles/one-piece-stampede/arabic/2738258) #Subscene 
+  ---
+[[Omoide Poroporo]]
+   - [Omar Hidan](https://nya.iss.one/view/973357) #nyaa
+   - [3asq Upload Team](https://nyaa.iss.ink//view/1178076) #nyaa 
+  ---
+[[Paprika]]
+   - [Scarlet Team](https://www.scarlet-tm.com/2014/10/paprika.html)
+   - [Lucilfer](https://lucilfersubs.blogspot.com/2020/10/movie-paprika-bluray-truehd.html)
+  ---
+[[Parol no Miraijima]]
+   - [Sasuke](https://subscene.com/subtitles/parol-no-miraijima/arabic/2236287) #Subscene 
+  ---
+[[Sakasama no Patema]]
+   - [MSOMS-ANIME](https://www.msoms-anime.net/showthread.php?t=183837)
+  ---
+[[Kidou Keisatsu Patlabor the Movie]]
+   - [MSOMS-ANIME](https://subscene.com/subtitles/patlabor-mobile-police-1-kid-keisatsu-patoreb-the-movie/arabic/1434908) #Subscene 
+  ---
+[[Kidou Keisatsu Patlabor 2 the Movie]]
+   - [7b7b](https://subscene.com/subtitles/patlabor-mobile-police-2-kid-keisatsu-patoreb-the-movie-2/arabic/1908904) #Subscene 
+  ---
+[[Penguin Highway]]
+   - [Athbul-Khayal](https://drive.google.com/drive/folders/1evsoY5BxQ38rW1LYCjlX7V3s-znMBE2Z)
+  ---
+[[Perfect Blue]]
+   - [Lucilfer](https://lucilfersubs.blogspot.com/2020/09/movie-perfect-blue-bluray-truehd.html)
+  ---
+[[Persona 3 the Movie 1 - Spring of Birth]]
+   - [Rebirth Fansub](https://rb-fs.blogspot.com/2015/02/persona-3-movie-1-spring-of-birth.html)
+  ---
+[[Persona 3 the Movie 2 - Midsummer Knight's Dream]]
+   - [Rebirth Fansub & kaizenfansub](https://rb-fs.blogspot.com/2016/07/persona-3-movie-2-midsummer-knights.html)
+   - [SorayA](https://subscene.com/subtitles/persona-3-the-movie-2-midsummer-knights-dream/arabic/1101614) #Subscene 
+  ---
+[[Persona 3 the Movie 3 - Falling Down]]
+   - [Data-True & Data-True](https://subscene.com/subtitles/persona-3-the-movie-3-falling-down/arabic/1300124) #Subscene 
+  ---
+[[Persona 3 the Movie 4 - Winter of Rebirth]]
+   - [CaffeineWorld](https://subscene.com/subtitles/persona-3-the-movie-4-winter-of-rebirth/arabic/1565778) #Subscene 
+  ---
+[[Piano no Mori]]
+   - [Motor to Win](https://subscene.com/subtitles/the-perfect-world-of-kai-aka-piano-forest-piano-no-mori/arabic/1350495) #Subscene 
+   - [Mirai-Subs](https://docs.google.com/spreadsheets/d/1Yp5kuGJyQIDLDiA8SnYu67lOls3mmCqdx0TuFVNBykQ/edit#gid=0)
+  ---
+[[Planetarian - Hoshi no Hito]]
+   - [Memories](https://subscene.com/subtitles/planetarian-hoshi-no-hito/arabic/1543484) #Subscene 
+  ---
+[[Gake no Ue no Ponyo]]
+   - [MSOMS-FANSUB](https://www.msoms-anime.net/showthread.php?t=178964&p=3336063&viewfull=1#post3336063) #nyaa 
+   - [3asq Upload Team](https://nyaa.iss.ink//view/1178076) #nyaa 
+  ---
+[[Kurenai no Buta]]
+   - [[Omar Hidan] Studio Ghibli Movies [BD720P][Ara,Jap,Eng,Fre] :: Nyaa ISS](https://nya.iss.one/view/973357)
+   - [Fetching Title#oyc4](https://nyaa.iss.ink//view/1178076)
+   - 
+  ---
+[[Mononoke Hime]]
+   - 
+  ---
+[[Promare]]
    - 
   ---
