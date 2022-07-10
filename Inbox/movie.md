@@ -352,8 +352,32 @@
    - [Mr.Gold](https://alanimefansub.blogspot.com/2014/12/reupload-miyori-no-mori.html)
   ---
   [[Mushishi Zoku Shou - Suzu no Shizuku]]
-   - 
+   - [Badro Subs](https://badrosubs.wordpress.com/2015/10/01/badro-mushishi-zoku-shou-suzu-no-shizuku/)
+   - [T.I.L](https://subscene.com/subtitles/mushishi-zoku-shou-suzu-no-shizuku-moves/arabic/1628090) #Subscene 
+   - [H.U.B fansub](https://subscene.com/subtitles/mushishi-zoku-shou-suzu-no-shizuku-moves/arabic/1932273) #Subscene 
   ---
   [[Boku no Hero Academia the Movie 1 - Futari no Hero]]
+   - [AlPhantom](https://subscene.com/subtitles/boku-no-hero-academia-the-movie-futari-no-hero-my-hero-academia-the-movie-two-heroes/arabic/1932240) #Subscene 
+   - [ParaExo & Mirai-subs & Zero-Kon](https://subscene.com/subtitles/boku-no-hero-academia-the-movie-futari-no-hero-my-hero-academia-the-movie-two-heroes/arabic/2540696) #Subscene 
+  ---
+[[Tonari no Totoro]]
+   - [MSOMS-Fansubs](https://subscene.com/subtitles/my-neighbor-totoro-tonari-no-totoro/arabic/2221418) #Subscene 
+   - [MSOMS-Fansubs](https://mega.nz/folder/P8ESwaJD#aAU59-jkDHpxv_TuzOPqEw)
+  ---
+[[Natsume Yuujinchou Movie - Utsusemi ni Musubu]]
+   - [NightBaron & Mirai](https://subscene.com/subtitles/natsumes-book-of-friends-the-movie-tied-to-the-temporal-world-2018-natsume-yuujinchou-movie-utsusemi-ni-musubu/arabic/2015404) #Subscene 
+   - [BlackOcean](https://blackoceanteam.wordpress.com/2019/06/27/b-o-team-%d9%8a%d9%82%d8%af%d9%91%d9%85-%d9%86%d8%a7%d8%aa%d8%b3%d9%88%d9%85%d9%8a-%d9%8a%d9%88%d8%ac%d9%8a%d9%86%d8%b4%d9%88-%d8%a7%d9%84%d9%81%d9%8a%d9%84%d9%85-natsume-yuujinc/)
+  ---
+[[Kaze no Tani no Nausicaä]]
+   - [MSOMS & Dragonier](https://subscene.com/subtitles/nausicaa-of-the-valley-of-the-wind/arabic/2362290) #Subscene 
+   - [MSOMS & Dragonier](https://mega.nz/file/fJwnzCZb#Krp3gV3wqvRN1hrzvHLFqFBcVsK2nDbpMf7-wlisksM)
+---
+[[Juubee Ninpuuchou]]
+   - 
+  ---
+[[No Game No Life - Zero]]
+   - 
+  ---
+[[Ongaku]]
    - 
   ---
