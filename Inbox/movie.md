@@ -334,7 +334,27 @@
   [[Metropolis]]
    - Subscene [Phantom](https://subscene.com/subtitles/metropolis-metoroporisu/arabic/1521123)
   ---
-  [[]]
+  [[Sennen Joyuu]]
+   - [Scarlet Team](https://www.scarlet-tm.com/2015/04/millennium-actress.html)
+  ---
+  [[Mind Game]]
+   - [Rhythm-Sub](https://rhythm-sub.com/2020/01/16/mind-game/)
+  ---
+  [[Mirai no Mirai]]
+   - [MSOMS-ANIME](https://www.msoms-anime.net/showthread.php?t=191321)
+   - [mohbaboo & alkendy](https://alkendy.net/archives/16316)
+  ---
+  [[Sarusuberi - Miss Hokusai]]
+   - [Omar Hidan & Kurai Mangetsu](https://subscene.com/subtitles/sarusuberi-miss-hokusai/arabic/1270868) #Subscene
+  ---
+  [[Miyori no Mori]]
+   - [Athbul-Khayal](https://drive.google.com/drive/folders/1q_Ek8u2bkygFXXYcfVS8pihK4IS57mPo)
+   - [Mr.Gold](https://alanimefansub.blogspot.com/2014/12/reupload-miyori-no-mori.html)
+  ---
+  [[Mushishi Zoku Shou - Suzu no Shizuku]]
+   - 
+  ---
+  [[Boku no Hero Academia the Movie 1 - Futari no Hero]]
    - 
   ---
   
