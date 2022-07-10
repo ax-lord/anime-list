@@ -484,8 +484,20 @@
    - [Alkendy](https://subscene.com/subtitles/redline-2009/arabic/2181017) #Subscene 
   ---
 [[Kimi to Nami ni Noretara]]
-   - [Fetching Title#5v4o](https://www.winoxa.info/2020/01/kimi-to-nami-ni-noretara-ride-your-wave.html)
+   - [WinoXA Sub](https://www.winoxa.info/2020/01/kimi-to-nami-ni-noretara-ride-your-wave.html)
   ---
 [[Riding Bean]]
-   - 
+   - [muhammed ayzen](https://subscene.com/subtitles/riding-bean/arabic/1973098) #Subscene 
+   - [SpiritOFAnimes](https://subscene.com/subtitles/riding-bean/arabic/2388174) #Subscene 
+  ---
+[[Ryo]]
+   - [kalaacom](https://subscene.com/subtitles/anime-mirai-ryo/arabic/2212504) #Subscene 
+   - [Dac-Fansubs](http://www.dacsubs.com/2013/07/blu-ray-ryo.html)
+  ---
+[[Saenai Heroine no Sodatekata Fine]]
+   - [WinoXa](https://www.winoxa.info/2020/11/saenai-heroine-no-sodatekata-fine.html)
+  ---
+[[Youjo Senki Movie]]
+   - [Nigel](https://subscene.com/subtitles/youjo-senki-movie-rus-sub/arabic/2045531) #Subscene 
+   - [SorayA](https://subscene.com/subtitles/youjo-senki-movie-rus-sub/arabic/2510258) #Subscene 
   ---
