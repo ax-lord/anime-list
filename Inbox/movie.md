@@ -633,44 +633,47 @@
    - [Mezzo](https://mezzosubs.blogspot.com/2018/10/yoru-wa-mijikashi-arukeyo-otome.html)
   ---
 [[Kumo no Mukou Yakusoku no Basho]]
-   - [Assassin Sub DDL](https://ddl.assassinssub.org/Movies/15%20Kumo%20No%20Mukou,%20Yakusoku%20No%20Basho/Subtitles%20&%20Fonts/)
-   - 
+   - [Assassin Sub](https://ddl.assassinssub.org/Movies/15%20Kumo%20No%20Mukou,%20Yakusoku%20No%20Basho/Subtitles%20&%20Fonts/)
   ---
 [[Toaru Hikuushi e no Tsuioku]]
-   - 
+   - [MSOMS-ANIME](https://nyaa.iss.ink/view/324695) #nyaa 
+   - [Zero-Kon & Lovely-Dream & Dantalin](https://subscene.com/subtitles/the-princess-and-the-pilot-to-aru-hikoushi-e-no-tsuioku/arabic/1719280)  #Subscene 
   ---
 [[Karigurashi no Arrietty]]
-   - 
+   - [Fetching Title#y9fo](https://nyaa.iss.ink/view/742047) #nyaa 
   ---
 [[The Sky Crawlers]]
-   - 
+   - [devil-fansubs](https://devil-fansubs.blogspot.com/2014/01/the-sky-crawlers.html)
   ---
 [[Kaze Tachinu]]
-   - 
+   - [Omar Hidan](https://nya.iss.one/view/973357) #nyaa 
+   - [hoseki](https://mega.nz/folder/vNdThJQL#94JQrgsOX5lEsWjayfekPg/folder/mcdlVDCb) #Mega
+   - [Phoenix-Subs](https://subscene.com/subtitles/the-wind-rises-kaze-tachinu/arabic/2326160) #Subscene 
   ---
 [[Tiger  Bunny Movie 1 - The Beginning]]
-   - 
+   - [NETFLIX](https://subscene.com/subtitles/gekij-ban-tiger-and-bunny-the-beginning/arabic/2737973)
   ---
 [[Tiger  Bunny Movie 2 - The Rising]]
-   - 
+   - [NETFLIX](https://subscene.com/subtitles/tiger-and-bunny-the-movie-the-rising/arabic/2737975)
   ---
 [[Eve no Jikan (Movie)]]
-   - 
+   - [Blade](https://subscene.com/subtitles/time-of-eve-eve-no-jikan/arabic/1866656)
   ---
 [[Tobira wo Akete]]
-   - 
+   - [AZ](https://www.mediafire.com/file/llfuq9ui263y6g6/%255BAZ%255D_Tobira_wo_Akete.mkv/file)
   ---
 [[Tokyo Godfathers]]
-   - 
+   - [Tokyo Godfathers (2003)](https://crowsub.blogspot.com/2020/10/tokyo-godfathers-2003.html) #Mega 
+   - [Devil-fansub](https://mega.nz/file/AQ8FwboC#EblDuzmDUwo5pVxwM72J2PhZp1Q_9umqcyC_Yxdjdqc) #Mega 
   ---
 [[Terra e]]
-   - 
+   - [wal9](https://masadorasub.wordpress.com/2021/07/29/%D9%81%D9%84%D9%85-%D9%86%D8%AD%D9%88-%D8%AA%D9%8A%D8%B1%D8%A7-toward-the-terra-%D9%85%D8%AA%D8%B1%D8%AC%D9%85/) #drive
   ---
 [[Trinity Seven Movie 1 - Eternity Library to Alchemic Girl]]
-   - 
+   - [SS3 & Zero-Kon](https://subscene.com/subtitles/trinity-seven-movie-eternity-library-to-alchemic-girl/arabic/1721761) #Subscene 
   ---
 [[Taifuu no Noruda]]
-   - 
+   - [M FanSub](https://mfansub-anime.blogspot.com/2020/03/taifuu-no-noruda-bluray.html) #file-upload
   ---
 [[Un-Go - Inga-ron]]
    - 
