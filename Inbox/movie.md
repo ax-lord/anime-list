@@ -524,7 +524,7 @@
   ---
 [[Hibike! Euphonium Movie 3 - Chikai no Finale]]
    - [Sawada-Sub](https://subscene.com/subtitles/sound-euphonium-the-movie-finale-oath/arabic/2379329) #Subscene 
-   - [Sawada-Sub](https://mega.nz/file/RuBl2KgC#0ugb2rrEQHmnyytKenqP4qXqSVgj-9mguBK6_Puo9I0)
+   - [Sawada-Sub](http://sawada-sub.blogspot.com/2020/03/hibike-euphonium-movie-3-chikai-no.html)
   ---
 [[Sen to Chihiro no Kamikakushi]]
    - [VEGETA](https://nyaa.iss.ink/view/450045) #nyaa 
@@ -673,25 +673,30 @@
    - [SS3 & Zero-Kon](https://subscene.com/subtitles/trinity-seven-movie-eternity-library-to-alchemic-girl/arabic/1721761) #Subscene 
   ---
 [[Taifuu no Noruda]]
-   - [M FanSub](https://mfansub-anime.blogspot.com/2020/03/taifuu-no-noruda-bluray.html) #file-upload
+   - [M FanSub](https://subscene.com/subtitles/typhoon-noruda/arabic/2170643) #Subscene 
+   - [RISE](https://subscene.com/subtitles/typhoon-noruda/arabic/1442913) #Subscene 
   ---
 [[Un-Go - Inga-ron]]
-   - 
+   - [RiMo](https://subscene.com/subtitles/un-go-episode0-ingaron/arabic/1710600)
   ---
 [[Vampire Hunter D]]
-   - 
+   - [azoozkiller787](https://azoozkiller787.blogspot.com/2020/10/vampire-hunter-d-1985.html)
+   - [muhammed ayzen](https://subscene.com/subtitles/vampire-hunter-d/arabic/2249944) #Subscene 
   ---
 [[Vampire Hunter D (2000)]]
-   - 
+   - [ayzen sama](https://subscene.com/subtitles/vampire-hunter-d-bloodlust-vampaia-hant-d/arabic/683844) #Subscene 
+   - [Athbul-Khaya](https://drive.google.com/drive/folders/1Xup4DTkSVcT3AdLs6fqo9dGEYHcy_31n) #drive 
   ---
 [[Venus Senki]]
-   - 
+   - [muhammed ayzen](https://subscene.com/subtitles/venus-wars-venus-senki/arabic/1963127) #Subscene 
   ---
 [[Violet Evergarden Gaiden - Eien to Jidou Shuki Ningyou]]
-   - 
+   - [Athbul-Khaya](https://drive.google.com/drive/folders/1P2uWWTsDf8B77h8iVgVQ1Dvtt0RkI84b)
+   - [Zero-Kon](https://subscene.com/subtitles/violet-evergarden-eternity-and-the-auto-memories-doll/arabic/2188925) #Subscene 
+   - Sawada-Sub
   ---
 [[Violet Evergarden Movie]]
-   - 
+   - [Athbul-Khaya](https://drive.google.com/drive/folders/1fyeS8d2jJXiKfCQgJV0E3NhFNvb4Z0oT)
   ---
 [[Tenki no Ko]]
    - 
