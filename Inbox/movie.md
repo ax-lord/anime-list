@@ -613,21 +613,27 @@
    - 
   ---
 [[Kotonoha no Niwa]]
-   - 
+   - [mohbaboo-subs](http://mohbaboo-subs.win/kotonoha-no-niwa_7/)
+   - [CROWsubs](https://crowsub.blogspot.com/2016/09/the-garden-of-words.html)
+   - [Dac-Fansub](https://subscene.com/subtitles/the-garden-of-words-koto-no-ha-no-niwa/arabic/754660) #Subscene 
+   - [Assassin Sub](https://ddl.assassinssub.org/Movies/04%20Kotonoha%20No%20Niwa/Subtitles%20&%20Fonts/)
   ---
 [[Toki wo Kakeru Shoujo]]
-   - 
+   - [mohbaboo-subs](http://mohbaboo-subs.win/toki-o-kakeru-shoujo_1/)
+   - [Nana & Sajo](https://subscene.com/subtitles/the-girl-who-leapt-through-time-toki-wo-kakeru-shjo/arabic/319748) #Subscene 
   ---
 [[Mahouka Koukou no Rettousei Movie - Hoshi wo Yobu Shoujo]]
-   - 
+   - [SadLover Subs](https://sadlover-sub.blogspot.com/2018/05/mahouka-koukou-no-rettousei-movie-hoshi.html) 
   ---
 [[Suki ni Naru Sono Shunkan wo - Kokuhaku Jikkou Iinkai]]
-   - 
+   - [Caffeine World](https://subscene.com/subtitles/suki-ni-naru-sono-shunkan-wo-kokuhaku-jikkou-iinkai/arabic/1697923) #Subscene 
+   - [Whisperteam](https://subscene.com/subtitles/suki-ni-naru-sono-shunkan-wo-kokuhaku-jikkou-iinkai/arabic/1574506) #Subscene 
   ---
 [[Yoru wa Mijikashi Arukeyo Otome]]
-   - 
+   - [Mezzo](https://mezzosubs.blogspot.com/2018/10/yoru-wa-mijikashi-arukeyo-otome.html)
   ---
 [[Kumo no Mukou Yakusoku no Basho]]
+   - [Assassin Sub DDL](https://ddl.assassinssub.org/Movies/15%20Kumo%20No%20Mukou,%20Yakusoku%20No%20Basho/Subtitles%20&%20Fonts/)
    - 
   ---
 [[Toaru Hikuushi e no Tsuioku]]
