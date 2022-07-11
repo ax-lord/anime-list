@@ -579,7 +579,8 @@
    - [alkendy](https://alkendy.net/archives/9451)
   ---
 [[Suzumiya Haruhi no Shoushitsu]]
-   - 
+   - [hoseki](https://subscene.com/subtitles/the-disappearance-of-haruhi-suzumiya-suzumiya-haruhi-no-shshitsu/arabic/1864562) #Subscene 
+   - [Red Team](https://red0team.wordpress.com/2011/03/01/the-disappearance-of-haruhi-suzumiya-hd/)
   ---
 [[Kara no Kyoukai Movie 1 - Fukan Fuukei]]
    - 
