@@ -640,7 +640,7 @@
    - [Zero-Kon & Lovely-Dream & Dantalin](https://subscene.com/subtitles/the-princess-and-the-pilot-to-aru-hikoushi-e-no-tsuioku/arabic/1719280)  #Subscene 
   ---
 [[Karigurashi no Arrietty]]
-   - [Fetching Title#y9fo](https://nyaa.iss.ink/view/742047) #nyaa 
+   - [MSOMS-ANIME](https://nyaa.iss.ink/view/742047) #nyaa 
   ---
 [[The Sky Crawlers]]
    - [devil-fansubs](https://devil-fansubs.blogspot.com/2014/01/the-sky-crawlers.html)
@@ -693,29 +693,37 @@
 [[Violet Evergarden Gaiden - Eien to Jidou Shuki Ningyou]]
    - [Athbul-Khaya](https://drive.google.com/drive/folders/1P2uWWTsDf8B77h8iVgVQ1Dvtt0RkI84b)
    - [Zero-Kon](https://subscene.com/subtitles/violet-evergarden-eternity-and-the-auto-memories-doll/arabic/2188925) #Subscene 
-   - Sawada-Sub
+   - [Sawada-Sub](http://web.archive.org/web/20200728124420/http://sawada-sub.blogspot.com:80/2020/03/violet-evergarden-gaiden-eien-to-jidou.html) #Mega 
   ---
 [[Violet Evergarden Movie]]
    - [Athbul-Khaya](https://drive.google.com/drive/folders/1fyeS8d2jJXiKfCQgJV0E3NhFNvb4Z0oT)
   ---
 [[Tenki no Ko]]
-   - 
+   - [Mugi](https://mugi-subs.blogspot.com/2020/05/tenki-no-ko-blu-ray.html)
+   - [Amer Edo](https://drive.google.com/drive/folders/13mnoH62olUvTqFJtZv-j9vyWN_-CCrCj) #drive 
+   - [Assassin Sub](https://ddl.assassinssub.org/Movies/12%20Tenki%20No%20Ko/Subtitles%20&%20Fonts/)
+   - [Es-Bouz](https://albara614.blogspot.com/2020/05/tenki-no-ko.html)
   ---
 [[Uchuu Show e Youkoso]]
-   - 
+   - [Mirai-Subs & caffeine-world](https://docs.google.com/spreadsheets/d/1Yp5kuGJyQIDLDiA8SnYu67lOls3mmCqdx0TuFVNBykQ/edit#gid=0) #Mega 
   ---
 [[Omoide no Marnie]]
-   - 
+   - [MSOMS-ANIME](https://nyaa.iss.ink/view/680662) #nyaa 
+   - [3asq Upload Team](https://nyaa.iss.ink//view/1178076) #nyaa 
+   - [Omar Hidan](https://nya.iss.one/view/973357) #nyaa 
   ---
 [[Mimi wo Sumaseba]]
-   - 
+   - [Amer - Edo San](https://nyaa.iss.ink/view/861958) #nyaa 
+   - [Amer - Edo San](https://drive.google.com/drive/folders/1rE7Wk6eNxcqVSLfD-q5WgoQVgvxmts5M) #drive 
   ---
 [[Youjuu Toshi]]
-   - 
+   - [Thamer Hattam](https://subscene.com/subtitles/wicked-city-yj-toshi/arabic/2258489) #Subscene 
+   - [M FanSub](https://subscene.com/subtitles/wicked-city-yj-toshi/arabic/2274771) #Subscene 
   ---
 [[Ookami Kodomo no Ame to Yuki]]
-   - 
+   - [Devil Fansub](https://subscene.com/subtitles/the-wolf-children-ame-and-yuki-okami-kodomo-no-ame-to-yuki/arabic/708933) #Subscene 
   ---
 [[Kimi no Na wa]]
-   - 
+   - [Assassin Sub DDL](https://ddl.assassinssub.org/Movies/02%20Kimi%20No%20Na%20Wa/Subtitles%20&%20Fonts/)
+   - [Zero-Kon & Omar Hidan & Mugi](https://subscene.com/subtitles/kimi-no-na-wa-your-name/arabic/1659653)
   ---
