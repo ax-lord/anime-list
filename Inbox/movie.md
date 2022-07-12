@@ -724,6 +724,7 @@
    - [Devil Fansub](https://subscene.com/subtitles/the-wolf-children-ame-and-yuki-okami-kodomo-no-ame-to-yuki/arabic/708933) #Subscene 
   ---
 [[Kimi no Na wa]]
-   - [Assassin Sub DDL](https://ddl.assassinssub.org/Movies/02%20Kimi%20No%20Na%20Wa/Subtitles%20&%20Fonts/)
+   - [Assassin Sub](https://ddl.assassinssub.org/Movies/02%20Kimi%20No%20Na%20Wa/Subtitles%20&%20Fonts/)
    - [Zero-Kon & Omar Hidan & Mugi](https://subscene.com/subtitles/kimi-no-na-wa-your-name/arabic/1659653)
+   - [MSOMS-ANIME](https://nyaa.iss.ink/view/975200)
   ---
