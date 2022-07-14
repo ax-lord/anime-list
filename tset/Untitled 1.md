@@ -1,6 +1,4 @@
----
-cssClasses: cards, cards-cover, cards-2-3
----
+
 
 ```dataview
 table without id 

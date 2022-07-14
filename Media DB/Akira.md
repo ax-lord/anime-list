@@ -22,5 +22,6 @@ type: "movie"
 watched: false
 lastWatched: ""
 personalRating: 0
-tags: "#mediaDB/tv/movie"
+tags: "#OmarHidan"
+OmarHidan: "[[Omar Hidan] Tales from Earthsea~Gedo Senki (2006)[BD 1280x692].ass](file:///C:%5CAnime%5Csub%5Csoftsub%5CMovies%5CStudio%20Ghibli%20Movies%5CGed%20Senki%5C[Omar%20Hidan]%20Tales%20from%20Earthsea~Gedo%20Senki%20(2006)[BD%201280x692].ass)"
 ---
