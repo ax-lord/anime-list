@@ -18,13 +18,13 @@
    - [AnimeOkoku](https://subscene.com/subtitles/accel-world-infinite-burst/arabic/1589909) #Subscene 
   ---
   [[Akira]]
-   - [kuroko-subs](https://kuroko-subs.blogspot.com/2014/11/akira-bluray.html)
+   - [kuroko-subs](https://kuroko-subs.blogspot.com/2014/11/akira-bluray.html) #sub #Softsub #Mega 
   ---
   [[Tenshi no Tamago]]
-   - [Lucilfer](https://lucilfersubs.blogspot.com/2020/10/movie-tenshi-no-tamago-bluray.html)
+   - [Lucilfer](https://lucilfersubs.blogspot.com/2020/10/movie-tenshi-no-tamago-bluray.html) #sub #Mega #Softsub #Mega #drive 
   ---
   [[Waga Seishun no Arcadia]]
-   - [athbul-khayal](https://athbul-khayal.net/waga-seishun-no-arcadiablu-ray/)
+   - [athbul-khayal](https://athbul-khayal.net/waga-seishun-no-arcadiablu-ray/) #sub #Softsub #DDL 
   ---
   [[Asura]]
    - [DAC & Sea-FS](https://subscene.com/subtitles/asura/arabic/2490617) #Subscene 
@@ -44,23 +44,23 @@
    - [SorayA & PirateM](https://subscene.com/subtitles/beyond-the-boundary-movie-ill-be-here-mirai-hen/arabic/2289865) #Subscene
   ---
   [[Da Yu Hai Tang (Movie)]]
-   - nyaa [Omar Hidan](https://omarhidanfansub.blogspot.com/2018/12/big-fish-and-begonia-movie-jpn-ver.html)
+   - [Omar Hidan](https://omarhidanfansub.blogspot.com/2018/12/big-fish-and-begonia-movie-jpn-ver.html) #Softsub #nyaa 
   ---
   [[Blood-C - The Last Dark]]
    - [KT-FS](https://subscene.com/subtitles/blood-c-the-last-dark/arabic/1301710) #Subscene
   ---
   [[Bokura no Nanokakan Sensou]]
-   - [sawada-sub](https://sawada-sub.blogspot.com/2020/05/bokura-no-nanokakan-sensou.html)
+   - [sawada-sub](https://sawada-sub.blogspot.com/2020/05/bokura-no-nanokakan-sensou.html) #sub #Mega #Softsub #Mega 
   ---
   [[Boruto - Naruto the Movie]]
-   - [Omar Hidan](https://omarhidanfansub.blogspot.com/2016/07/boruto-naruto-movie-bluray.html)
+   - [Omar Hidan](https://omarhidanfansub.blogspot.com/2016/07/boruto-naruto-movie-bluray.html) #Softsub #1Fichier
   ---
   [[Break Blade Movie 1 - Kakusei no Toki]]
    - [Devil-Fansub](https://devil-fansubs.blogspot.com/2013/08/devil-fansub-broken-blade.html)
   ---
   [[Bungou Stray Dogs - Dead Apple]]
-   - [WinoXA Sub](https://www.winoxa.info/2018/09/bungo-stray-dogs-dead-apple.html)
-   - [vonsub](https://vonsub.blogspot.com/2019/03/BungouStrayDogsDeadApple.html)
+   - [WinoXA Sub](https://www.winoxa.info/2018/09/bungo-stray-dogs-dead-apple.html) #Softsub #drive #DDL #nyaa #sub #dropbox
+   - [vonsub](https://vonsub.blogspot.com/2019/03/BungouStrayDogsDeadApple.html) #Softsub #drive 
   ---
   [[Cardcaptor Sakura Movie]]
    - [Kaede & M i M i](https://subscene.com/subtitles/cardcaptor-sakura-the-movie-gekijban-kdokyaput-sakura/arabic/2304158) #Subscene
@@ -72,52 +72,52 @@
    - [MSOMS & Dragonier](https://subscene.com/subtitles/castle-in-the-sky/arabic/2315598) #Subscene
   ---
   [[Cencoroll Connect]]
-   - [Raigeki](https://raigekisubs.wordpress.com/2022/05/02/cencoroll-connect/)
+   - [Raigeki](https://raigekisubs.wordpress.com/2022/05/02/cencoroll-connect/) #Softsub #nyaa 
   ---
   [[Kaijuu no Kodomo]]
-   - [Assassin Sub DDL](https://ddl.assassinssub.org/Movies/11%20Kaijuu%20No%20Kodomo/)
+   - [Assassin Sub DDL](https://ddl.assassinssub.org/Movies/11%20Kaijuu%20No%20Kodomo/) #Softsub #sub #DDL 
    - [HunterKunA](https://subscene.com/subtitles/children-of-the-sea/arabic/2149039) #Subscene
   ---
   [[Hoshi wo Ou Kodomo]]
    - [hoseki](https://subscene.com/subtitles/children-who-chase-lost-voices-from-deep-below-hoshi-o-ou-kodomo/arabic/1420316) #Subscene
   ---
   [[Kuro no Su - Chronus]]
-   - [M FanSub](https://mfansub-anime.blogspot.com/2020/05/chronus-bluray.html) 
+   - [M FanSub](https://mfansub-anime.blogspot.com/2020/05/chronus-bluray.html) #sub #file-upload 
   ---
 [[Clannad Movie]]
    - [Clannad: The Motion Picture](https://subscene.com/subtitles/clannad-the-motion-picture/arabic/1061021) #Subscene
   ---
   [[Code Geass - Fukkatsu no Lelouch]]
-   - [AmirNM](https://mega.nz/file/HjYjWCKI#mRI-jBvznyhhOCt1IeTNtQp9ZX2uOl1T9Lkhzwx7JkE)
-   - [Abdulillah-sub](https://mega.nz/file/HjYjWCKI#mRI-jBvznyhhOCt1IeTNtQp9ZX2uOl1T9Lkhzwx7JkE)  
+   - [AmirNM](https://mega.nz/file/HjYjWCKI#mRI-jBvznyhhOCt1IeTNtQp9ZX2uOl1T9Lkhzwx7JkE) #sub #Mega 
+   - [Abdulillah-sub](https://mega.nz/file/yzYDSSqS#htxBUzLKyui3ZYVxLUJF7IdAVdfFjMT_LK_i5AUco8Q) #sub #Mega 
    - [STARZPLAY](https://subscene.com/subtitles/code-geass-fukkatsu-no-lelouch/arabic/2794002) #Subscene
   ---
   [[Colorful (Movie)]]
-   - [Mirai-Subs](https://mega.nz/file/IwhBTTQB#1YoH6yjSP-9CshYzkJgnLAI9xL_Te990G0mR7wpHeJc)
+   - [Mirai-Subs](https://mega.nz/file/IwhBTTQB#1YoH6yjSP-9CshYzkJgnLAI9xL_Te990G0mR7wpHeJc) #sub #Mega 
    -  [Doki](https://subscene.com/subtitles/colorful-karafuru/arabic/983096) #Subscene
   ---
   [[Cowboy Bebop - Tengoku no Tobira]]
-   - [3asq Upload Team](https://www.3asq.co/showthread.php?t=365196)
+   - [3asq Upload Team](https://www.3asq.co/showthread.php?t=365196) #sub #solidfiles #Softsub  #nyaa 
    - [Alaa Elassy + Devils-Fansubs + THE SAMO](https://subscene.com/subtitles/cowboy-bebop-the-movie-cowboy-bebop-tengoku-no-tobira/arabic/2461599) #Subscene
   ---
   [[Date A Bullet - Dead or Bullet]]
    - [AnimeSan & NGT](https://subscene.com/subtitles/date-a-bullet-zenpen-dead-or-bullet/arabic/2459126) #Subscene
    - [AnimeSan & NGT](https://next-generation-team1.blogspot.com/2021/04/date-bullet-movies-bluray.html)
-   - [AnimeSan & NGT](https://animesan-subs.blogspot.com/2021/04/date-bullet-movies-bluray.html)
+   - [AnimeSan & NGT](https://animesan-subs.blogspot.com/2021/04/date-bullet-movies-bluray.html) #Softsub #drive #Mega #sub #Mega 
   ---
   [[Date A Live Movie - Mayuri Judgment]]
-   - [SolarStorm3 & Mugi](https://solarstorm-sub.blogspot.com/2018/06/date-live-mayuri-judgement-movie.html)
-   - [SolarStorm3](https://subscene.com/subtitles/date-a-live-movie-mayuri-judgment/arabic/2219415) #Subscene
+   - [SolarStorm3 & Mugi](https://solarstorm-sub.blogspot.com/2018/06/date-live-mayuri-judgement-movie.html) #Softsub #nyaa #drive #sub #dropbox 
+   - [SolarStorm3](https://subscene.com/subtitles/date-a-live-movie-mayuri-judgment/arabic/2219415) #Subscene 
   ---
   [[Dead Leaves]]
-   - [Es-Bouz](https://es-bouz.blogspot.com/2020/04/dead-leaves.html)
+   - [Es-Bouz](https://es-bouz.blogspot.com/2020/04/dead-leaves.html) #Softsub #Mega 
   ---
   [[Death Billiards]]
    - [SadLover](https://subscene.com/subtitles/death-billards/arabic/2260134) #Subscene
-   - [SadLover](https://mega.nz/file/zRUFFBTZ#RKr7qMyEvdeNrR7Psg9jY4vFRP_0hTBqC0tWom8GUa8)
+   - [SadLover](https://mega.nz/file/zRUFFBTZ#RKr7qMyEvdeNrR7Psg9jY4vFRP_0hTBqC0tWom8GUa8) #sub #Mega 
   ---
   [[Kimetsu no Yaiba Movie - Mugen Ressha-hen]]
-   - [Mugi Subs](https://mugi-subs.blogspot.com/2021/06/kimetsu-no-yaiba-movie-mugen-ressha-hen.html)
+   - [Mugi Subs](https://mugi-subs.blogspot.com/2021/06/kimetsu-no-yaiba-movie-mugen-ressha-hen.html) #Softsub #nyaa #sub #Discord
   ---
   [[Neon Genesis Evangelion - The End of Evangelion]]
    - [Memories](https://nyaa.iss.ink/view/1254315) 

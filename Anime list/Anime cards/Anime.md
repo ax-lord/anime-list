@@ -12,6 +12,6 @@ table without id
 	join(genres, ", ") as genres,
 	duration
 from "Media DB"  
-where type != "movie"
+where type != "[[Inbox/movie|movie]]"
 ```
 
