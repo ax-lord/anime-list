@@ -1,18 +1,18 @@
 [[Byousoku 5 Centimeter]]
-   - [Loveforever](https://www.3asq.co/showthread.php?t=369891)
-   - [Assassin'S Sub](https://assassinssub.org/category/byousoku-5-centimeter/)
+   - [Loveforever](https://www.3asq.co/showthread.php?t=369891) #Softsub #mediafire #Mega 
+   - [Assassin'S Sub](https://assassinssub.org/category/byousoku-5-centimeter/) #sub #Softsub  #DDL
   ---
   [[Toaru Majutsu no Index Movie - Endymion no Kiseki]]
-   - [athbul-khayal](https://athbul-khayal.net/toaru-majutsu-no-index-endymion-no_7/)
+   - [athbul-khayal](https://athbul-khayal.net/toaru-majutsu-no-index-endymion-no_7/) #sub #drive #Softsub #DDL 
   ---
   [[Momo e no Tegami]]
-   - [Devils Fansubs](https://archive.org/details/DevilsFansubsMomoENoTegami10803E250E7F) 
+   - [Devils Fansubs](https://archive.org/details/DevilsFansubsMomoENoTegami10803E250E7F) #archive
    - [ayzen sama](https://subscene.com/subtitles/a-letter-to-momo/arabic/706507) #Subscene 
   ---
   [[Koe no Katachi]]
-   - [Assassin Sub DDL](https://ddl.assassinssub.org/Movies/01%20Koe%20No%20Katachi/)
-   - [Mirai-Subs](https://goo.gl/MuFCsg)
-   - [Drakou](https://drakou-subs.blogspot.com/2017/05/koe-no-katachi-movie.html)
+   - [Assassin Sub](https://ddl.assassinssub.org/Movies/01%20Koe%20No%20Katachi/) #sub #Softsub  #DDL
+   - [Mirai-Subs](https://goo.gl/MuFCsg) #sub #Softsub  #drive 
+   - [Drakou](https://drakou-subs.blogspot.com/2017/05/koe-no-katachi-movie.html) #Softsub #Mega 
   ---
   [[Accel World - Infinite∞Burst]]
    - [AnimeOkoku](https://subscene.com/subtitles/accel-world-infinite-burst/arabic/1589909) #Subscene 
@@ -583,34 +583,39 @@
    - [Red Team](https://red0team.wordpress.com/2011/03/01/the-disappearance-of-haruhi-suzumiya-hd/)
   ---
 [[Kara no Kyoukai Movie 1 - Fukan Fuukei]]
-   - 
+   - [mohbaboo & Zero-Kon](https://subscene.com/subtitles/kara-no-kyoukai-1-fukan-fuukei/arabic/2369759) #Subscene 
   ---
 [[Kara no Kyoukai Movie 2 - Satsujin Kousatsu (Zen)]]
-   - 
+   - [mohbaboo & Zero-Kon](https://subscene.com/subtitles/kara-no-kyoukai-2-satsujin-kousatsu-part-1/arabic/2370115) #Subscene 
   ---
 [[Kara no Kyoukai Movie 3 - Tsuukaku Zanryuu]]
-   - 
+   - [mohbaboo & Zero-Kon](https://subscene.com/subtitles/kara-no-kyoukai-3-tsuukaku-zanryuu/arabic/2371726) #Subscene 
   ---
 [[Kara no Kyoukai Movie 4 - Garan no Dou]]
-   - 
+   - [mohbaboo & Zero-Kon](https://subscene.com/subtitles/kara-no-kyoukai-4-garan-no-dou/arabic/2374121) #Subscene 
   ---
 [[Kara no Kyoukai Movie 5 - Mujun Rasen]]
-   - 
+   - [mohbaboo & Zero-Kon](https://subscene.com/subtitles/kara-no-kyoukai-5-mujun-rasen/arabic/2375498) #Subscene 
   ---
 [[Kara no Kyoukai Movie 6 - Boukyaku Rokuon]]
-   - 
+   - [mohbaboo & Zero-Kon](https://subscene.com/subtitles/kara-no-kyoukai-6-boukyaku-rokuon/arabic/2376765) #Subscene 
   ---
+  [[Kara no Kyoukai Remix - Gate of Seventh Heaven]]
+   - [PAESES](https://subscene.com/subtitles/kara-no-kyoukai-65-remix-gate-of-seventh-heaven/arabic/2326820) #Subscene 
+  ---
+
 [[Kara no Kyoukai Movie 7 - Satsujin Kousatsu (Go)]]
-   - 
+   - [mohbaboo & Zero-Kon](https://subscene.com/subtitles/kara-no-kyoukai-7-satsujin-kousatsu-part-2/arabic/2405635) #Subscene 
   ---
 [[Kara no Kyoukai Movie 8 - Shuushou]]
-   - 
+   - [mohbaboo & Zero-Kon](https://subscene.com/subtitles/kara-no-kyoukai-epilogue/arabic/2379418) #Subscene 
   ---
 [[Kara no Kyoukai Movie - Mirai Fukuin]]
-   - 
+   - [LUFFY & Zero-Kon](https://subscene.com/subtitles/kara-no-kyoukai-mirai-fukuin/arabic/2384175) #Subscene 
+   - [Al3asq Team](https://subscene.com/subtitles/kara-no-kyoukai-mirai-fukuin/arabic/2123670) #Subscene 
   ---
 [[Kara no Kyoukai Movie - Mirai Fukuin - Extra Chorus]]
-   - 
+   - [AmerEdo & Zero-Kon](https://subscene.com/subtitles/kara-no-kyoukai-mirai-fukuin-extra-chorus/arabic/2384794) #Subscene 
   ---
 [[Kotonoha no Niwa]]
    - [mohbaboo-subs](http://mohbaboo-subs.win/kotonoha-no-niwa_7/)
