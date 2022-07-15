@@ -120,13 +120,13 @@
    - [Mugi Subs](https://mugi-subs.blogspot.com/2021/06/kimetsu-no-yaiba-movie-mugen-ressha-hen.html) #Softsub #nyaa #sub #Discord
   ---
   [[Neon Genesis Evangelion - The End of Evangelion]]
-   - [Memories](https://nyaa.iss.ink/view/1254315) 
+   - [Memories](https://nyaa.iss.ink/view/1254315) #Softsub #nyaa  
   ---
   [[Evangelion - 10 You Are (Not) Alone]]
-   - [Ryousha](https://nyaa.iss.ink/view/1254315) 
+   - [Ryousha](https://nyaa.iss.ink/view/1254315) #Softsub #nyaa  
   ---
   [[Evangelion - 20 You Can (Not) Advance]]
-   - [Ryousha](https://nyaa.iss.ink/view/1254315) 
+   - [Ryousha](https://nyaa.iss.ink/view/1254315) #Softsub #nyaa  
   ---
   [[Evangelion - 30 You Can (Not) Redo]]
    - [kalaacom](https://mega.nz/file/qDIgjR4Q#Me0NyGGLjDZfBkM19TQuspk2o_IhfyJiIvsJiZWcQOs)
@@ -138,19 +138,19 @@
   [[Rakuen Tsuihou]]
    - [SadLover](https://subscene.com/subtitles/contact-the-filmmakers-on-imdbpro-see-rank-rakuen-tsuiho-expelled-from-paradise/arabic/1492425) #Subscene
   ---
-  [[Fatekaleid liner Prisma?Illya - Prisma?Phantasm]]
-   - [Rhythm-Sub](https://rhythm-sub.com/2020/01/01/fate-kaleid-liner-prisma%E2%98%86illya-movie-sekka-no-chikai-kuro-sakura-no-heya/)
+  [[Fatekaleid liner Prisma☆Illya - Prisma☆Phantasm]]
+   - [Rhythm-Sub](https://rhythm-sub.com/2020/01/01/fate-kaleid-liner-prisma%E2%98%86illya-movie-sekka-no-chikai-kuro-sakura-no-heya/) #Softsub #torrent  
   ---
   [[Fatestay night Movie - Heaven's Feel - I Presage Flower]]
-   - [Feitan](https://cdn.discordapp.com/attachments/436883123322617866/713341406042783824/Feitan_fate_stay_night_heavens_feel_presage_flower_.ass)
+   - [Feitan](https://cdn.discordapp.com/attachments/436883123322617866/713341406042783824/Feitan_fate_stay_night_heavens_feel_presage_flower_.ass) #sub #Discord 
    - [fattati](https://fattati.com/2018/05/12/fate-stay-night-movie-heavens-feel-i-presage-flower/)
   ---
   [[Fatestay night Movie - Heaven's Feel - II Lost Butterfly]]
-   - [Feitan](https://cdn.discordapp.com/attachments/436883123322617866/713377434371752047/Feitan_Fate_stay_night_Heavens_Feel_II_-_Lost_Butterfly.ass)
+   - [Feitan](https://cdn.discordapp.com/attachments/436883123322617866/713377434371752047/Feitan_Fate_stay_night_Heavens_Feel_II_-_Lost_Butterfly.ass) #sub #Discord 
    - [fattati](https://fattati.com/2019/08/22/fate-stay-night-movie-heavens-feel-ii-lost-butterfly-bluray/)
   ---
   [[Fatestay night Movie - Heaven's Feel - III Spring Song]]
-   - [Feitan](https://cdn.discordapp.com/attachments/436883123322617866/826861634924052580/Feitan_Fate_stay_night_Heavens_Feel_III_-_Spring_Song.ass)
+   - [Feitan](https://cdn.discordapp.com/attachments/436883123322617866/826861634924052580/Feitan_Fate_stay_night_Heavens_Feel_III_-_Spring_Song.ass) #sub #Discord 
   ---
   [[Uchiage Hanabi Shita kara Miru ka Yoko kara Miru ka]]
    - [Caffeine World](https://caffeine-world.info/movies/%d9%81%d9%8a%d9%84%d9%85-uchiage-hanabi-shita-kara-miru-ka-yoko-kara-miru-ka-%d9%85%d8%aa%d8%b1%d8%ac%d9%85-%d8%a8%d9%84%d9%88%d8%b1%d8%a7%d9%8a/)
