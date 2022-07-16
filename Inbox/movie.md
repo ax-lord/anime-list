@@ -1,4 +1,4 @@
-[[Byousoku 5 Centimeter]]
+[[Byousoku 5 Centimeter]] 
    - [Loveforever](https://www.3asq.co/showthread.php?t=369891) #Softsub #mediafire #Mega 
    - [Assassin'S Sub](https://assassinssub.org/category/byousoku-5-centimeter/) #sub #Softsub  #DDL
   ---
