@@ -373,7 +373,7 @@
 	 - Comparisons:
 		 - [GITS New Movie | Slowpoke Pics](https://slow.pics/c/bFx6zXuc)
  ---
-  -  [[Innocenc]]
+  -  [[Innocence]]
 	 - raw:  
 		 - [[hydes] Ghost In The Shell 2: Innocence [ITBD Remux][Dual-Audio] + OST :: Nyaa](https://nyaa.si/view/1338669)
 	 - sub:
