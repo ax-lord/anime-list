@@ -104,26 +104,26 @@
    - [AnimeSan & NGT](https://animesan-subs.blogspot.com/2021/04/date-bullet-movies-bluray.html) #sub/Mega 
   ---
   [[Date A Live Movie - Mayuri Judgment]]
-   - [SolarStorm3 & Mugi](https://solarstorm-sub.blogspot.com/2018/06/date-live-mayuri-judgement-movie.html) #Softsub #nyaa #drive #sub #dropbox 
+   - [SolarStorm3 & Mugi](https://solarstorm-sub.blogspot.com/2018/06/date-live-mayuri-judgement-movie.html) #sub/dropbox 
   ---
   [[Dead Leaves]]
-   - [Es-Bouz](https://es-bouz.blogspot.com/2020/04/dead-leaves.html) #Softsub #Mega 
+   - [Es-Bouz](https://es-bouz.blogspot.com/2020/04/dead-leaves.html) #Softsub/Mega 
   ---
   [[Death Billiards]]
    - [SadLover](https://subscene.com/subtitles/death-billards/arabic/2260134) #Subscene
-   - [SadLover](https://mega.nz/file/zRUFFBTZ#RKr7qMyEvdeNrR7Psg9jY4vFRP_0hTBqC0tWom8GUa8) #sub #Mega 
+   - [SadLover](https://mega.nz/file/zRUFFBTZ#RKr7qMyEvdeNrR7Psg9jY4vFRP_0hTBqC0tWom8GUa8) #Softsub/Mega  
   ---
   [[Kimetsu no Yaiba Movie - Mugen Ressha-hen]]
-   - [Mugi Subs](https://mugi-subs.blogspot.com/2021/06/kimetsu-no-yaiba-movie-mugen-ressha-hen.html) #Softsub #nyaa #sub #Discord
+   - [Mugi Subs](https://mugi-subs.blogspot.com/2021/06/kimetsu-no-yaiba-movie-mugen-ressha-hen.html) #sub/Discord
   ---
   [[Neon Genesis Evangelion - The End of Evangelion]]
-   - [Memories](https://nyaa.iss.ink/view/1254315) #Softsub #nyaa  
+   - [Memories](https://nyaa.iss.ink/view/1254315) #Softsub/nyaa  
   ---
   [[Evangelion - 10 You Are (Not) Alone]]
-   - [Ryousha](https://nyaa.iss.ink/view/1254315) #Softsub #nyaa  
+   - [Ryousha](https://nyaa.iss.ink/view/1254315) #Softsub/nyaa
   ---
   [[Evangelion - 20 You Can (Not) Advance]]
-   - [Ryousha](https://nyaa.iss.ink/view/1254315) #Softsub #nyaa  
+   - [Ryousha](https://nyaa.iss.ink/view/1254315) #Softsub/nyaa
   ---
   [[Evangelion - 30 You Can (Not) Redo]]
    - [kalaacom](https://mega.nz/file/qDIgjR4Q#Me0NyGGLjDZfBkM19TQuspk2o_IhfyJiIvsJiZWcQOs)
@@ -136,55 +136,55 @@
    - [SadLover](https://subscene.com/subtitles/contact-the-filmmakers-on-imdbpro-see-rank-rakuen-tsuiho-expelled-from-paradise/arabic/1492425) #Subscene
   ---
   [[Fatekaleid liner Prisma☆Illya - Prisma☆Phantasm]]
-   - [Rhythm-Sub](https://rhythm-sub.com/2020/01/01/fate-kaleid-liner-prisma%E2%98%86illya-movie-sekka-no-chikai-kuro-sakura-no-heya/) #Softsub #torrent  
+   - [Rhythm-Sub](https://rhythm-sub.com/2020/01/01/fate-kaleid-liner-prisma%E2%98%86illya-movie-sekka-no-chikai-kuro-sakura-no-heya/) #Softsub/torrent  
   ---
   [[Fatestay night Movie - Heaven's Feel - I Presage Flower]]
-   - [Feitan](https://cdn.discordapp.com/attachments/436883123322617866/713341406042783824/Feitan_fate_stay_night_heavens_feel_presage_flower_.ass) #sub #Discord 
-   - [fattati](https://fattati.com/2018/05/12/fate-stay-night-movie-heavens-feel-i-presage-flower/)
+   - [Feitan](https://cdn.discordapp.com/attachments/436883123322617866/713341406042783824/Feitan_fate_stay_night_heavens_feel_presage_flower_.ass) #sub/Discord 
+   - [fattati](https://fattati.com/2018/05/12/fate-stay-night-movie-heavens-feel-i-presage-flower/) #sub/dropbox 
   ---
   [[Fatestay night Movie - Heaven's Feel - II Lost Butterfly]]
-   - [Feitan](https://cdn.discordapp.com/attachments/436883123322617866/713377434371752047/Feitan_Fate_stay_night_Heavens_Feel_II_-_Lost_Butterfly.ass) #sub #Discord 
-   - [fattati](https://fattati.com/2019/08/22/fate-stay-night-movie-heavens-feel-ii-lost-butterfly-bluray/)
+   - [Feitan](https://cdn.discordapp.com/attachments/436883123322617866/713377434371752047/Feitan_Fate_stay_night_Heavens_Feel_II_-_Lost_Butterfly.ass) #sub/Discord  
+   - [fattati](https://fattati.com/2019/08/22/fate-stay-night-movie-heavens-feel-ii-lost-butterfly-bluray/) #sub/dropbox
   ---
   [[Fatestay night Movie - Heaven's Feel - III Spring Song]]
-   - [Feitan](https://cdn.discordapp.com/attachments/436883123322617866/826861634924052580/Feitan_Fate_stay_night_Heavens_Feel_III_-_Spring_Song.ass) #sub #Discord 
+   - [Feitan](https://cdn.discordapp.com/attachments/436883123322617866/826861634924052580/Feitan_Fate_stay_night_Heavens_Feel_III_-_Spring_Song.ass) #sub/Discord  
   ---
   [[Uchiage Hanabi Shita kara Miru ka Yoko kara Miru ka]]
-   - [Caffeine World](https://caffeine-world.info/movies/%d9%81%d9%8a%d9%84%d9%85-uchiage-hanabi-shita-kara-miru-ka-yoko-kara-miru-ka-%d9%85%d8%aa%d8%b1%d8%ac%d9%85-%d8%a8%d9%84%d9%88%d8%b1%d8%a7%d9%8a/)
+   - [Caffeine World](https://caffeine-world.info/movies/%d9%81%d9%8a%d9%84%d9%85-uchiage-hanabi-shita-kara-miru-ka-yoko-kara-miru-ka-%d9%85%d8%aa%d8%b1%d8%ac%d9%85-%d8%a8%d9%84%d9%88%d8%b1%d8%a7%d9%8a/) #sub/Mega 
   ---
   [[Free! Take Your Marks]]
    - [nuiem](https://subscene.com/subtitles/free-take-your-marks/arabic/2255023) #Subscene
   ---
   [[Coquelicot-zaka kara]]
    - [SGT](https://archive.org/details/SGTFromUpOnPoppyHillBD1920x1036X264FLAC.part1)
-   - [Omar Hidan](https://docs.google.com/uc?id=0BzUxBP8OOHEyNWRpcEIwRU4yck0&export=download) 
+   - [Omar Hidan](https://nya.iss.one/view/973357) #Softsub/nyaa 
   ---
   [[Fullmetal Alchemist - The Sacred Star of Milos]]
    - [Hagane](https://subscene.com/subtitles/fullmetal-alchemist-the-sacred-star-of-milos/arabic/1802134) #Subscene
    - [Devil-Fansub](https://subscene.com/subtitles/fullmetal-alchemist-the-sacred-star-of-milos/arabic/1802135) #Subscene
   ---
   [[Garo Movie - Divine Flame]]
-   - [hikki-sub](https://hikki-sub.blogspot.com/2021/07/garo-movie-divine-flame-blu-ray-1080p.html)
+   - [Hikki-Sub](https://hikki-sub.blogspot.com/2021/07/garo-movie-divine-flame-blu-ray-1080p.html) #sub/Mega 
   ---
   [[Koukaku Kidoutai - Shin Movie]]
-   - [Scarlet Team](https://www.scarlet-tm.com/2016/01/ghost-in-shell-new-movie-2015.html)
+   - [Scarlet Team](https://www.scarlet-tm.com/2016/01/ghost-in-shell-new-movie-2015.html) #sub/dropbox 
   ---
   [[Innocence|Ghost in the Shell 2: Innocence]] 
    - [Kuroko-subs](https://subscene.com/subtitles/ghost-in-the-shell-2-innocence-inosensu-kkaku-kidtai/arabic/1628036) #Subscene
-   - [Kuroko-subs](https://mega.nz/folder/0yYTgBhQ#2G5mEFvVdWCsBaX_17NOUQ)
+   - [Kuroko-subs](https://mega.nz/folder/0yYTgBhQ#2G5mEFvVdWCsBaX_17NOUQ) #Softsub/Mega 
   ---
   [[Koukaku Kidoutai 20]]
-   - [Rhythm-Sub](https://rhythm-sub.com/2020/01/17/koukaku-kidoutai-2-0/)
+   - [Rhythm-Sub](https://rhythm-sub.com/2020/01/17/koukaku-kidoutai-2-0/) #Softsub/torrent 
   ---
   [[Gintama Movie 1 - Shinyaku Benizakura-hen]]
    - [Kyntama.blogspot.com](https://subscene.com/subtitles/gintama-movie-1-shinyaku-benizakura-hen/arabic/1339083) #Subscene
   ---
   [[Gintama Movie 2 - Kanketsu-hen - Yorozuya yo Eien Nare]]
-   - [Yaha-Sub](https://nyaa.iss.ink/view/507762)
+   - [Yaha-Sub](https://nyaa.iss.ink/view/507762) #Softsub/nyaa 
    - [Kyntama.blogspot.com](https://subscene.com/subtitles/gintama-the-final-chapter-be-forever-yorozuya/arabic/1315303) #Subscene
   ---
   [[Gintama - The Final]]
-   - [Yaha-Sub](https://nyaa.iss.ink/view/1419919)
+   - [Yaha-Sub](https://nyaa.iss.ink/view/1419919) #Softsub/nyaa 
   ---
   [[Girls  Panzer Movie]]
    - [Phantom](https://mega.nz/file/dM8DGaQR#GDlUWsfqt2ZEGNBSj6mfdm2sFS06U-T3woqJ3DSiIns)
