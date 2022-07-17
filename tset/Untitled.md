@@ -1,3 +1,4 @@
+obsidian://open?vault=Obsidian&file=Media%20DB%2FToaru%20Majutsu%20no%20Index%20Movie%20-%20Endymion%20no%20Kiseki
 
 Byousoku 5 Centimeter https://www.3asq.co/showthread.php?t=369891 https://assassinssub.org/category/byousoku-5-centimeter/
 "Gekijouban Toaru Majutsu no Index: Endymion no Kiseki" https://athbul-khayal.net/toaru-majutsu-no-index-endymion-no_7/

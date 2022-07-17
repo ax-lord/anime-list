@@ -1,9 +1,9 @@
  -  [[Byousoku 5 Centimeter]] ^m1
-	 - raw:  
+	 - raw:  [sub](file:///C:%5CAnime%5Csub)
 		 - [[Arid] 5 Centimeters per Second [Dual-Audio][BDRip 1920x1080 Hi10 FLAC] | Byousoku 5 Centimeter](https://nyaa.si/view/1472870)
-	 - sub:
-		 - 
-
+	 - sub:[Bakemono no Ko](file:///C:%5CUsers%5Clord%5CObsidian%5CSub%5Cmovie%5CBakemono%20no%20Ko)
+		 - [[]][Bakemono no Ko](file:///C:%5CUsers%5Clord%5CObsidian%5CSub%5Cmovie%5CBakemono%20no%20Ko)
+![[[hoseki]_Bakemono_no_Ko_v2_(BD_1080p_FLAC)_Subtitles01.ass]]
 ---
  -  [[Toaru Majutsu no Index Movie - Endymion no Kiseki]]
 	 - raw:  
