@@ -1,1 +1,0 @@
-[Bakemono no Ko](file:///C:Obsidian%5CSub%5Cmovie%5CBakemono%20no%20Ko)
