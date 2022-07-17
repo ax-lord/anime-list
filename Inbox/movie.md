@@ -704,22 +704,22 @@
    - [Athbul-Khaya](https://drive.google.com/drive/folders/1fyeS8d2jJXiKfCQgJV0E3NhFNvb4Z0oT)
   ---
 [[Tenki no Ko]]
-   - [Mugi](https://mugi-subs.blogspot.com/2020/05/tenki-no-ko-blu-ray.html)
-   - [Amer Edo](https://drive.google.com/drive/folders/13mnoH62olUvTqFJtZv-j9vyWN_-CCrCj) #drive 
-   - [Assassin Sub](https://ddl.assassinssub.org/Movies/12%20Tenki%20No%20Ko/Subtitles%20&%20Fonts/)
-   - [Es-Bouz](https://albara614.blogspot.com/2020/05/tenki-no-ko.html)
+   - [Mugi](https://mugi-subs.blogspot.com/2020/05/tenki-no-ko-blu-ray.html) #sub/dropbox
+   - [Amer Edo](https://drive.google.com/drive/folders/13mnoH62olUvTqFJtZv-j9vyWN_-CCrCj) #sub/Drive  
+   - [Assassin Sub](https://ddl.assassinssub.org/Movies/12%20Tenki%20No%20Ko/Subtitles%20&%20Fonts/) #sub/DDL 
+   - [Es-Bouz](https://albara614.blogspot.com/2020/05/tenki-no-ko.html) #sub/Drive 
   ---
 [[Uchuu Show e Youkoso]]
-   - [Mirai-Subs & caffeine-world](https://docs.google.com/spreadsheets/d/1Yp5kuGJyQIDLDiA8SnYu67lOls3mmCqdx0TuFVNBykQ/edit#gid=0) #Mega 
+   - [Mirai-Subs & caffeine-world](https://docs.google.com/spreadsheets/d/1Yp5kuGJyQIDLDiA8SnYu67lOls3mmCqdx0TuFVNBykQ/edit#gid=0) #sub/Mega
   ---
 [[Omoide no Marnie]]
-   - [MSOMS-ANIME](https://nyaa.iss.ink/view/680662) #nyaa 
-   - [3asq Upload Team](https://nyaa.iss.ink//view/1178076) #nyaa 
-   - [Omar Hidan](https://nya.iss.one/view/973357) #nyaa 
+   - [MSOMS-ANIME](https://nyaa.iss.ink/view/680662) #Softsub/nyaa 
+   - [3asq Upload Team](https://nyaa.iss.ink//view/1178076) #Softsub/nyaa 
+   - [Omar Hidan](https://nya.iss.one/view/973357) #Softsub/nyaa  
   ---
 [[Mimi wo Sumaseba]]
-   - [Amer - Edo San](https://nyaa.iss.ink/view/861958) #nyaa 
-   - [Amer - Edo San](https://drive.google.com/drive/folders/1rE7Wk6eNxcqVSLfD-q5WgoQVgvxmts5M) #drive 
+   - [Amer - Edo San](https://nyaa.iss.ink/view/861958) #Softsub/nyaa  
+   - [Amer - Edo San](https://drive.google.com/drive/folders/1rE7Wk6eNxcqVSLfD-q5WgoQVgvxmts5M) #sub/Drive 
   ---
 [[Youjuu Toshi]]
    - [Thamer Hattam](https://subscene.com/subtitles/wicked-city-yj-toshi/arabic/2258489) #Subscene 
@@ -729,7 +729,7 @@
    - [Devil Fansub](https://subscene.com/subtitles/the-wolf-children-ame-and-yuki-okami-kodomo-no-ame-to-yuki/arabic/708933) #Subscene 
   ---
 [[Kimi no Na wa]]
-   - [Assassin Sub](https://ddl.assassinssub.org/Movies/02%20Kimi%20No%20Na%20Wa/Subtitles%20&%20Fonts/)
-   - [Zero-Kon & Omar Hidan & Mugi](https://subscene.com/subtitles/kimi-no-na-wa-your-name/arabic/1659653)
-   - [MSOMS-ANIME](https://nyaa.iss.ink/view/975200)
+   - [Assassin Sub](https://ddl.assassinssub.org/Movies/02%20Kimi%20No%20Na%20Wa/Subtitles%20&%20Fonts/) #sub/DDL
+   - [Zero-Kon & Omar Hidan & Mugi](https://subscene.com/subtitles/kimi-no-na-wa-your-name/arabic/1659653) #Subscene 
+   - [MSOMS-ANIME](https://nyaa.iss.ink/view/975200) #Softsub/nyaa 
   ---
