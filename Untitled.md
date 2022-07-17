@@ -1,1 +1,1 @@
-[Bakemono no Ko](file:///C:%5CUsers%5Clord%5CObsidian%5CSub%5Cmovie%5CBakemono%20no%20Ko)
+[Bakemono no Ko](file:///C:Obsidian%5CSub%5Cmovie%5CBakemono%20no%20Ko)
