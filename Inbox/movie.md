@@ -239,29 +239,29 @@
    - [3asq Upload Team](https://nyaa.iss.ink//view/1178076) #Softsub/nyaa 
   ---
   [[Kimi no Suizou wo Tabetai]]
-   - [Athbul-Khayal](https://drive.google.com/drive/folders/1Q5M03OLudct1OGm-Tw7EADd_l29swFhi)
+   - [Athbul-Khayal](https://drive.google.com/drive/folders/1Q5M03OLudct1OGm-Tw7EADd_l29swFhi) #sub/drive 
    - [Athbul-Khayal](https://subscene.com/subtitles/kimi-no-suizou-wo-tabetai-i-want-to-eat-your-pancreas/arabic/2770723) #Subscene
   ---
   [[Zutto Mae kara Suki deshita - Kokuhaku Jikkou Iinkai]]
-   - [Fattati](https://fattati.com/2016/10/13/zutto-mae-kara-suki-deshita-kokuhaku-jikkou-iinkai-movie/)
+   - [Fattati](https://fattati.com/2016/10/13/zutto-mae-kara-suki-deshita-kokuhaku-jikkou-iinkai-movie/) #Softsub/drive 
   ---
   [[Kono Sekai no Katasumi ni]]
-   - [Assassin Sub](https://ddl.assassinssub.org/Movies/03%20Kono%20Sekai%20No%20Katasumi%20Ni/)
+   - [Assassin Sub](https://ddl.assassinssub.org/Movies/03%20Kono%20Sekai%20No%20Katasumi%20Ni/) #sub/DDL 
    - [Mohammad_Subs](https://subscene.com/subtitles/in-this-corner-of-the-world/arabic/2498730) #Subscene
   ---
   [[Dungeon ni Deai wo Motomeru no wa Machigatteiru Darou ka Movie - Orion no Ya]]
    - [SorayA](https://subscene.com/subtitles/dungeon-ni-deai-wo-motomeru-no-wa-machigatteiru-darou-ka-movie-orion-no-ya/arabic/2014557) #Subscene 
    - [Nigel](https://subscene.com/subtitles/dungeon-ni-deai-wo-motomeru-no-wa-machigatteiru-darou-ka-movie-orion-no-ya/arabic/2012698) #Subscene
    - [MohammadSubs](https://subscene.com/subtitles/dungeon-ni-deai-wo-motomeru-no-wa-machigatteiru-darou-ka-movie-orion-no-ya/arabic/2014593) #Subscene
-   - [Hikki-Sub](https://hikki-sub.blogspot.com/2019/08/danmachi-movie-arrow-of-orion-bdrip.html)
+   - [Hikki-Sub](https://hikki-sub.blogspot.com/2019/08/danmachi-movie-arrow-of-orion-bdrip.html) #sub/Mega 
   ---
   [[K-On! Movie]]
    - [shsmd & Mohammed](https://subscene.com/subtitles/k-on-movie/arabic/2056296) #Subscene
    - [Sawada](https://subscene.com/subtitles/k-on-movie/arabic/2384782) #Subscene
   ---
   [[Koutetsujou no Kabaneri Movie 3 - Unato Kessen]]
-   - [Mugi Subs](https://mugi-subs.blogspot.com/2019/08/koutetsujou-no-kabaneri-movie-unato.html)
-   - [Caffeine World](https://caffeine-world.info/movies/koutetsujou-no-kabaneri-unato-kessen/)
+   - [Mugi Subs](https://mugi-subs.blogspot.com/2019/08/koutetsujou-no-kabaneri-movie-unato.html) #sub/dropbox 
+   - [Caffeine World](https://caffeine-world.info/movies/koutetsujou-no-kabaneri-unato-kessen/) #sub/drive 
   ---
   [[Kick-Heart]]
    - [www.alkendy.net](https://subscene.com/subtitles/kick-heart/arabic/1015726) #Subscene
@@ -271,22 +271,22 @@
   ---
   [[Kizumonogatari I - Tekketsu-hen]]
    - [Yagame-sub & Hotaka & Mugi](https://subscene.com/subtitles/kizumonogatari-part-1-tekketsu/arabic/2520531) #Subscene
-   - [Mugi Sub](https://mugi-subs.blogspot.com/2016/07/kizumonogatari-i-tekketsu-hen-blu-ray.html)
+   - [Mugi Sub](https://mugi-subs.blogspot.com/2016/07/kizumonogatari-i-tekketsu-hen-blu-ray.html) #sub/dropbox 
   ---
   [[Kizumonogatari II - Nekketsu-hen]]
    - [Yagame-sub & Hotaka & Mugi](https://subscene.com/subtitles/kizumonogatari-part-2-nekketsu-hen/arabic/2520533) #Subscene
-   - [Mugi Subs](https://mugi-subs.blogspot.com/2016/12/kizumonogatari-ii-nekketsu-hen-blu-ray.html)
+   - [Mugi Subs](https://mugi-subs.blogspot.com/2016/12/kizumonogatari-ii-nekketsu-hen-blu-ray.html) #sub/dropbox 
   ---
   [[Kizumonogatari III - Reiketsu-hen]]
    - [Yagame-sub & Hotaka & Mugi](https://subscene.com/subtitles/kizumonogatari-iii-reiketsu-hen/arabic/2520534) #Subscene
-   - [Mugi Subs](https://mugi-subs.blogspot.com/2017/07/kizumonogatari-iii-reiketsu-hen-blu-ray.html)
+   - [Mugi Subs](https://mugi-subs.blogspot.com/2017/07/kizumonogatari-iii-reiketsu-hen-blu-ray.html) #sub/dropbox 
   ---
   [[Kono Subarashii Sekai ni Shukufuku wo! Spin-off - Kono Subarashii Sekai ni Bakuen wo!]]
    - [ShareAnime](https://subscene.com/subtitles/kono-subarashii-sekai-ni-shukufuku-wo-kurenai-densetsu-konosuba-movie/arabic/2222750) #Subscene
    - [CrunchyRoll](https://subscene.com/subtitles/kono-subarashii-sekai-ni-shukufuku-wo-kurenai-densetsu-konosuba-movie/arabic/2181349) #Subscene
   ---
   [[Kud Wafter]]
-   - [Next Generation Team](https://next-generation-team1.blogspot.com/2021/02/kud-wafter-ova.html)
+   - [Next Generation Team](https://next-generation-team1.blogspot.com/2021/02/kud-wafter-ova.html) #Softsub/drive 
   ---
   [[Toshokan Sensou - Kakumei no Tsubasa]]
    - [Devils](https://subscene.com/subtitles/toshokan-sensou-kakumei-no-tsubasa/arabic/754171) #Subscene
@@ -295,36 +295,36 @@
    - [muhammed ayzen](https://subscene.com/subtitles/choujin-locke-locke-the-superman/arabic/1435680) #Subscene
   ---
   [[Omoi Omoware Furi Furare]]
-   - [Asahi Fansubs](https://asahi-fansubs.blogspot.com/2021/06/omoi-omoware-furi-furare-movie.html)
-   - [muth-team](https://muth-team.blogspot.com/2021/04/omoi-omoware-furi-furare.html)
-   - [Mejaow](https://mejaow.blogspot.com/2021/12/omoi-omoware-furi-furare-bd.html)
+   - [Asahi Fansubs](https://asahi-fansubs.blogspot.com/2021/06/omoi-omoware-furi-furare-movie.html) #Softsub/nyaa 
+   - [muth-team](https://muth-team.blogspot.com/2021/04/omoi-omoware-furi-furare.html) #Softsub/drive  
+   - [Mejaow](https://mejaow.blogspot.com/2021/12/omoi-omoware-furi-furare-bd.html) #sub/dropbox 
   ---
   [[Takanashi Rikka Kai - Chuunibyou demo Koi ga Shitai! Movie]]
    - [SorayA](https://subscene.com/subtitles/takanashi-rikka-kai-chuunibyou-demo-koi-ga-shitai-movie/arabic/933468) #Subscene
   ---
   [[Chuunibyou demo Koi ga Shitai! Movie - Take On Me]]
-   - [Athbul-Khayal](https://drive.google.com/drive/folders/16tqfY88KBDm-aLC37hGqBly0WegLQUDk)
+   - [Athbul-Khayal](https://drive.google.com/drive/folders/16tqfY88KBDm-aLC37hGqBly0WegLQUDk) #sub/drive 
    - [Mohammad_Subs](https://subscene.com/subtitles/chuunibyou-demo-koi-ga-shitai-movie-take-on-me/arabic/1820607) #Subscene
    - [Mohammad_Subs & TaLoN](https://subscene.com/subtitles/chuunibyou-demo-koi-ga-shitai-movie-take-on-me/arabic/1823986) #Subscene
   ---
   [[Yoake Tsugeru Lu no Uta]]
-   - [Mezzo](https://mezzosubs.blogspot.com/2018/05/blog-post.html)
+   - [Mezzo](https://mezzosubs.blogspot.com/2018/05/blog-post.html) #Softsub/drive   
   ---
   [[Made in Abyss Movie 3 - Fukaki Tamashii no Reimei]]
-   - [Scarlet Team](https://www.scarlet-tm.com/2020/10/made-in-abyss-movies-13-bluray.html)
+   - [Scarlet Team](https://www.scarlet-tm.com/2020/10/made-in-abyss-movies-13-bluray.html) #sub/DDL  
   ---
   [[Mai Mai Shinko to Sennen no Mahou]]
-   - [MSOMS-ANIME](https://www.msoms-anime.net/showthread.php?t=184592)
+   - [MSOMS-ANIME](https://www.msoms-anime.net/showthread.php?t=184592) #Softsub/Mega 
    - [muhammed ayzen](https://subscene.com/subtitles/mai-mai-miracle-maimai-shinko-to-sen-nen-no-mah/arabic/1421413) #Subscene
   ---
   [[Sayonara no Asa ni Yakusoku no Hana wo Kazarou]]
-   - [Athbul-Khayal](https://drive.google.com/drive/folders/1-vUNYgqQt00DTfjZwLfQgfvJHFDFQbMh)
-   - [Assassin Sub DDL](https://ddl.assassinssub.org/Movies/09%20Sayonara%20No%20Asa%20Ni%20Yakusoku%20No%20Hana%20Wo%20Kazarou/)
+   - [Athbul-Khayal](https://drive.google.com/drive/folders/1-vUNYgqQt00DTfjZwLfQgfvJHFDFQbMh) #sub/drive 
+   - [Assassin Sub DDL](https://ddl.assassinssub.org/Movies/09%20Sayonara%20No%20Asa%20Ni%20Yakusoku%20No%20Hana%20Wo%20Kazarou/) #sub/DDL 
    - [mohammad subs](https://subscene.com/subtitles/sayonara-no-asa-ni-yakusoku-no-hana-o-kazarou/arabic/1874592) #Subscene 
    - [MSOMS-ANIME](https://subscene.com/subtitles/sayonara-no-asa-ni-yakusoku-no-hana-o-kazarou/arabic/2222752) #Subscene
   ---
   [[Memories]]
-   - [Dac-Fansubs](http://www.dacsubs.com/2015/11/memories-1995.html)
+   - [Dac-Fansubs](http://www.dacsubs.com/2015/11/memories-1995.html) #Softsub/torrent 
    - [M!nato Sub & YouKai](https://subscene.com/subtitles/memories/arabic/2327279)  #Subscene 
    - [Abdullah @OW_AF](https://subscene.com/subtitles/memories/arabic/710477)  #Subscene
 ---
@@ -332,24 +332,24 @@
    - [Phantom](https://subscene.com/subtitles/metropolis-metoroporisu/arabic/1521123) #Subscene
   ---
   [[Sennen Joyuu]]
-   - [Scarlet Team](https://www.scarlet-tm.com/2015/04/millennium-actress.html)
+   - [Scarlet Team](https://www.scarlet-tm.com/2015/04/millennium-actress.html) #Softsub/drive 
   ---
   [[Mind Game]]
-   - [Rhythm-Sub](https://rhythm-sub.com/2020/01/16/mind-game/)
+   - [Rhythm-Sub](https://rhythm-sub.com/2020/01/16/mind-game/) #Softsub/torrent 
   ---
   [[Mirai no Mirai]]
-   - [MSOMS-ANIME](https://www.msoms-anime.net/showthread.php?t=191321)
-   - [mohbaboo & alkendy](https://alkendy.net/archives/16316)
+   - [MSOMS-ANIME](https://www.msoms-anime.net/showthread.php?t=191321) #Softsub/nyaa 
+   - [mohbaboo & alkendy](https://alkendy.net/archives/16316) #sub/Mega 
   ---
   [[Sarusuberi - Miss Hokusai]]
    - [Omar Hidan & Kurai Mangetsu](https://subscene.com/subtitles/sarusuberi-miss-hokusai/arabic/1270868) #Subscene
   ---
   [[Miyori no Mori]]
-   - [Athbul-Khayal](https://drive.google.com/drive/folders/1q_Ek8u2bkygFXXYcfVS8pihK4IS57mPo)
-   - [Mr.Gold](https://alanimefansub.blogspot.com/2014/12/reupload-miyori-no-mori.html)
+   - [Athbul-Khayal](https://drive.google.com/drive/folders/1q_Ek8u2bkygFXXYcfVS8pihK4IS57mPo) #sub/drive 
+   - [Mr.Gold](https://alanimefansub.blogspot.com/2014/12/reupload-miyori-no-mori.html) #Softsub/drive 
   ---
   [[Mushishi Zoku Shou - Suzu no Shizuku]]
-   - [Badro Subs](https://badrosubs.wordpress.com/2015/10/01/badro-mushishi-zoku-shou-suzu-no-shizuku/)
+   - [Badro Subs](https://badrosubs.wordpress.com/2015/10/01/badro-mushishi-zoku-shou-suzu-no-shizuku/) #Softsub/Mega 
    - [T.I.L](https://subscene.com/subtitles/mushishi-zoku-shou-suzu-no-shizuku-moves/arabic/1628090) #Subscene 
    - [H.U.B fansub](https://subscene.com/subtitles/mushishi-zoku-shou-suzu-no-shizuku-moves/arabic/1932273) #Subscene 
   ---
@@ -359,21 +359,21 @@
   ---
 [[Tonari no Totoro]]
    - [MSOMS-Fansubs](https://subscene.com/subtitles/my-neighbor-totoro-tonari-no-totoro/arabic/2221418) #Subscene 
-   - [MSOMS-Fansubs](https://mega.nz/folder/P8ESwaJD#aAU59-jkDHpxv_TuzOPqEw)
+   - [MSOMS-Fansubs](https://mega.nz/folder/P8ESwaJD#aAU59-jkDHpxv_TuzOPqEw) #Softsub/Mega 
   ---
 [[Natsume Yuujinchou Movie - Utsusemi ni Musubu]]
    - [NightBaron & Mirai](https://subscene.com/subtitles/natsumes-book-of-friends-the-movie-tied-to-the-temporal-world-2018-natsume-yuujinchou-movie-utsusemi-ni-musubu/arabic/2015404) #Subscene 
-   - [BlackOcean](https://blackoceanteam.wordpress.com/2019/06/27/b-o-team-%d9%8a%d9%82%d8%af%d9%91%d9%85-%d9%86%d8%a7%d8%aa%d8%b3%d9%88%d9%85%d9%8a-%d9%8a%d9%88%d8%ac%d9%8a%d9%86%d8%b4%d9%88-%d8%a7%d9%84%d9%81%d9%8a%d9%84%d9%85-natsume-yuujinc/)
+   - [BlackOcean](https://blackoceanteam.wordpress.com/2019/06/27/b-o-team-%d9%8a%d9%82%d8%af%d9%91%d9%85-%d9%86%d8%a7%d8%aa%d8%b3%d9%88%d9%85%d9%8a-%d9%8a%d9%88%d8%ac%d9%8a%d9%86%d8%b4%d9%88-%d8%a7%d9%84%d9%81%d9%8a%d9%84%d9%85-natsume-yuujinc/) #sub/Mega 
   ---
 [[Kaze no Tani no Nausicaä]]
    - [MSOMS & Dragonier](https://subscene.com/subtitles/nausicaa-of-the-valley-of-the-wind/arabic/2362290) #Subscene 
-   - [MSOMS & Dragonier](https://mega.nz/file/fJwnzCZb#Krp3gV3wqvRN1hrzvHLFqFBcVsK2nDbpMf7-wlisksM)
+   - [MSOMS & Dragonier](https://mega.nz/file/fJwnzCZb#Krp3gV3wqvRN1hrzvHLFqFBcVsK2nDbpMf7-wlisksM) #Softsub/Mega 
 ---
 [[Juubee Ninpuuchou]]
    -  [https://www.ar-jimaku.blitedesu.net/](https://www.ar-jimaku.blitedesu.net/)
   ---
 [[No Game No Life - Zero]]
-   - [Mugi & Zero-kon](https://subscene.com/subtitles/no-game-no-life-zero/arabic/1729406)
+   - [Mugi & Zero-kon](https://subscene.com/subtitles/no-game-no-life-zero/arabic/1729406) #Subscene 
   ---
 [[Ongaku]]
    - [DarkStorm](https://subscene.com/subtitles/on-gaku-our-sound-ongaku/arabic/2766915) #Subscene 
@@ -384,18 +384,18 @@
    - [STARZPLAY & FIS & Almighty](https://subscene.com/subtitles/one-piece-stampede/arabic/2738258) #Subscene 
   ---
 [[Omoide Poroporo]]
-   - [Omar Hidan](https://nya.iss.one/view/973357) #nyaa
-   - [3asq Upload Team](https://nyaa.iss.ink//view/1178076) #nyaa 
+   - [Omar Hidan](https://nya.iss.one/view/973357) #Softsub/nyaa 
+   - [3asq Upload Team](https://nyaa.iss.ink//view/1178076) #Softsub/nyaa  
   ---
 [[Paprika]]
-   - [Scarlet Team](https://www.scarlet-tm.com/2014/10/paprika.html)
-   - [Lucilfer](https://lucilfersubs.blogspot.com/2020/10/movie-paprika-bluray-truehd.html)
+   - [Scarlet Team](https://www.scarlet-tm.com/2014/10/paprika.html) #sub/dropbox 
+   - [Lucilfer](https://lucilfersubs.blogspot.com/2020/10/movie-paprika-bluray-truehd.html) #sub/Mega 
   ---
 [[Parol no Miraijima]]
    - [Sasuke](https://subscene.com/subtitles/parol-no-miraijima/arabic/2236287) #Subscene 
   ---
 [[Sakasama no Patema]]
-   - [MSOMS-ANIME](https://www.msoms-anime.net/showthread.php?t=183837)
+   - [MSOMS-ANIME](https://www.msoms-anime.net/showthread.php?t=183837) #Softsub/nyaa 
   ---
 [[Kidou Keisatsu Patlabor the Movie]]
    - [MSOMS-ANIME](https://subscene.com/subtitles/patlabor-mobile-police-1-kid-keisatsu-patoreb-the-movie/arabic/1434908) #Subscene 
@@ -404,10 +404,10 @@
    - [7b7b](https://subscene.com/subtitles/patlabor-mobile-police-2-kid-keisatsu-patoreb-the-movie-2/arabic/1908904) #Subscene 
   ---
 [[Penguin Highway]]
-   - [Athbul-Khayal](https://drive.google.com/drive/folders/1evsoY5BxQ38rW1LYCjlX7V3s-znMBE2Z)
+   - [Athbul-Khayal](https://drive.google.com/drive/folders/1evsoY5BxQ38rW1LYCjlX7V3s-znMBE2Z) #sub/drive 
   ---
 [[Perfect Blue]]
-   - [Lucilfer](https://lucilfersubs.blogspot.com/2020/09/movie-perfect-blue-bluray-truehd.html)
+   - [Lucilfer](https://lucilfersubs.blogspot.com/2020/09/movie-perfect-blue-bluray-truehd.html) #sub/Mega 
   ---
 [[Persona 3 the Movie 1 - Spring of Birth]]
    - [Rebirth Fansub](https://rb-fs.blogspot.com/2015/02/persona-3-movie-1-spring-of-birth.html)
