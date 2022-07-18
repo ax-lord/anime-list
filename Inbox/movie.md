@@ -126,7 +126,7 @@
    - [Ryousha](https://nyaa.iss.ink/view/1254315) #Softsub/nyaa
   ---
   [[Evangelion - 30 You Can (Not) Redo]]
-   - [kalaacom](https://mega.nz/file/qDIgjR4Q#Me0NyGGLjDZfBkM19TQuspk2o_IhfyJiIvsJiZWcQOs)
+   - [kalaacom](https://mega.nz/file/qDIgjR4Q#Me0NyGGLjDZfBkM19TQuspk2o_IhfyJiIvsJiZWcQOs) 
    - [AMAZON](https://subscene.com/subtitles/evangelion-30-you-can-not-redo/arabic/2550502) #Subscene
   ---
   [[Evangelion - 30+10 Thrice Upon a Time]]
