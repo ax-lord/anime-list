@@ -126,7 +126,7 @@
    - [Ryousha](https://nyaa.iss.ink/view/1254315) #Softsub/nyaa
   ---
   [[Evangelion - 30 You Can (Not) Redo]]
-   - [kalaacom](https://mega.nz/file/qDIgjR4Q#Me0NyGGLjDZfBkM19TQuspk2o_IhfyJiIvsJiZWcQOs) 
+   - [kalaacom](https://mega.nz/file/qDIgjR4Q#Me0NyGGLjDZfBkM19TQuspk2o_IhfyJiIvsJiZWcQOs) #sub/Mega 
    - [AMAZON](https://subscene.com/subtitles/evangelion-30-you-can-not-redo/arabic/2550502) #Subscene
   ---
   [[Evangelion - 30+10 Thrice Upon a Time]]
@@ -187,19 +187,19 @@
    - [Yaha-Sub](https://nyaa.iss.ink/view/1419919) #Softsub/nyaa 
   ---
   [[Girls  Panzer Movie]]
-   - [Phantom](https://mega.nz/file/dM8DGaQR#GDlUWsfqt2ZEGNBSj6mfdm2sFS06U-T3woqJ3DSiIns)
+   - [Phantom](https://subscene.com/subtitles/girls-und-panzer-der-film/arabic/1407257) #Subscene 
   ---
   [[Goblin Slayer - Goblin's Crown]]
-   - [Next Generation Team](https://next-generation-team1.blogspot.com/2021/05/goblin-slayer-goblins-crown-bluray.html)
+   - [Next Generation Team](https://next-generation-team1.blogspot.com/2021/05/goblin-slayer-goblins-crown-bluray.html) #sub/drive 
   ---
   [[Hotaru no Haka]]
-   - [3asq.tv](https://nyaa.iss.ink//view/1178076)
+   - [3asq.tv](https://nyaa.iss.ink//view/1178076) #Softsub/torrent 
   ---
   [[Onna Senshi Efe  Jira - Gude no Monshou]]
-   - [Sasuke FanSub](https://sasukefansub05.blogspot.com/2022/03/onna-senshi-efe-jira-gude-no-monshou.html)
+   - [Sasuke FanSub](https://sasukefansub05.blogspot.com/2022/03/onna-senshi-efe-jira-gude-no-monshou.html) #Softsub/Mega 
   ---
   [[Hanasaku Iroha Movie - Home Sweet Home]]
-   - [Rhythm-Sub](https://rhythm-sub.com/2020/07/18/hanasaku-iroha-home-sweet-home/)
+   - [Rhythm-Sub](https://rhythm-sub.com/2020/07/18/hanasaku-iroha-home-sweet-home/) #Softsub/torrent 
    - [Asahi](https://subscene.com/subtitles/hanasaku-iroha-home-sweet-home/arabic/2253421) #Subscene
   ---
   [[Dounika Naru Hibi]]
@@ -213,30 +213,30 @@
    - [CrowSubs & Zero-Kon](https://subscene.com/subtitles/harmony/arabic/1842889) #Subscene
   ---
   [[Hashire! Shiroi Ookami]]
-   - [Tsubasanime](https://tsubasanime.blogspot.com/2021/05/hashire-shiroi-ookami.html)
+   - [Tsubasanime](https://tsubasanime.blogspot.com/2021/05/hashire-shiroi-ookami.html) #sub/drive 
   ---
   [[Hello World]]
-   - [Athbul-Khayal](https://drive.google.com/drive/folders/17Z2DtVe8IKnkIDlvzeOYC76jvUixROvF)
+   - [Athbul-Khayal](https://drive.google.com/drive/folders/17Z2DtVe8IKnkIDlvzeOYC76jvUixROvF) #sub/drive 
   ---
   [[Hells]]
    - [Fukuro subs](https://subscene.com/subtitles/hells/arabic/2268405) #Subscene
   ---
   [[Sora no Aosa wo Shiru Hito yo]]
    - [Asahie](https://subscene.com/subtitles/her-blue-sky/arabic/2236187) #Subscene
-   - [mohbaboo-subs](http://mohbaboo-subs.win/sora-no-aosa-wo-shiru-hito-yo-bluray/)
+   - [mohbaboo-subs](http://mohbaboo-subs.win/sora-no-aosa-wo-shiru-hito-yo-bluray/) #Softsub
   ---
   [[High☆Speed! Movie - Free! Starting Days]]
    - [Subscene - High Speed!: Free! Starting Days Arabic hearing impaired subtitle](https://subscene.com/subtitles/high-speed-free-starting-days/arabic/2466751) 
   ---
   [[Hotarubi no Mori e]]
-   - [HunterKunA](https://animesan-subs.blogspot.com/2021/09/bd-web-1080p-hunterkuna.html)
+   - [HunterKunA](https://animesan-subs.blogspot.com/2021/09/bd-web-1080p-hunterkuna.html) #sub/drive 
    - [3asq & shenlongsubs & Hagane](https://subscene.com/subtitles/hotarubi-no-mori-e-2011/arabic/1917185) #Subscene
    - [BlackOcean](https://subscene.com/subtitles/hotarubi-no-mori-e-2011/arabic/2128985) #Subscene
    - [Devil Fansub](https://subscene.com/subtitles/hotarubi-no-mori-e-2011/arabic/786963) #Subscene
   ---
   [[Howl no Ugoku Shiro]]
-   - [Omar Hidan](https://nya.iss.one/view/973357)
-   - [3asq Upload Team](https://nyaa.iss.ink//view/1178076)
+   - [Omar Hidan](https://nya.iss.one/view/973357) #Softsub/nyaa 
+   - [3asq Upload Team](https://nyaa.iss.ink//view/1178076) #Softsub/nyaa 
   ---
   [[Kimi no Suizou wo Tabetai]]
    - [Athbul-Khayal](https://drive.google.com/drive/folders/1Q5M03OLudct1OGm-Tw7EADd_l29swFhi)
