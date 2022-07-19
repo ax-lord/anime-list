@@ -370,7 +370,7 @@
    - [MSOMS & Dragonier](https://mega.nz/file/fJwnzCZb#Krp3gV3wqvRN1hrzvHLFqFBcVsK2nDbpMf7-wlisksM) #Softsub/Mega 
 ---
 [[Juubee Ninpuuchou]]
-   -  [https://www.ar-jimaku.blitedesu.net/](https://www.ar-jimaku.blitedesu.net/)
+   - [https://www.ar-jimaku.blitedesu.net/](https://www.ar-jimaku.blitedesu.net/)
   ---
 [[No Game No Life - Zero]]
    - [Mugi & Zero-kon](https://subscene.com/subtitles/no-game-no-life-zero/arabic/1729406) #Subscene 
@@ -410,10 +410,10 @@
    - [Lucilfer](https://lucilfersubs.blogspot.com/2020/09/movie-perfect-blue-bluray-truehd.html) #sub/Mega 
   ---
 [[Persona 3 the Movie 1 - Spring of Birth]]
-   - [Rebirth Fansub](https://rb-fs.blogspot.com/2015/02/persona-3-movie-1-spring-of-birth.html)
+   - [Rebirth Fansub](https://rb-fs.blogspot.com/2015/02/persona-3-movie-1-spring-of-birth.html) #Softsub/Mega 
   ---
 [[Persona 3 the Movie 2 - Midsummer Knight's Dream]]
-   - [Rebirth Fansub & kaizenfansub](https://rb-fs.blogspot.com/2016/07/persona-3-movie-2-midsummer-knights.html)
+   - [Rebirth Fansub & kaizenfansub](https://rb-fs.blogspot.com/2016/07/persona-3-movie-2-midsummer-knights.html) #Subscene 
    - [SorayA](https://subscene.com/subtitles/persona-3-the-movie-2-midsummer-knights-dream/arabic/1101614) #Subscene 
   ---
 [[Persona 3 the Movie 3 - Falling Down]]
@@ -424,7 +424,7 @@
   ---
 [[Piano no Mori]]
    - [Motor to Win](https://subscene.com/subtitles/the-perfect-world-of-kai-aka-piano-forest-piano-no-mori/arabic/1350495) #Subscene 
-   - [Mirai-Subs](https://docs.google.com/spreadsheets/d/1Yp5kuGJyQIDLDiA8SnYu67lOls3mmCqdx0TuFVNBykQ/edit#gid=0)
+   - [Mirai-Subs](https://docs.google.com/spreadsheets/d/1Yp5kuGJyQIDLDiA8SnYu67lOls3mmCqdx0TuFVNBykQ/edit#gid=0) #sub/Mega 
   ---
 [[Planetarian - Hoshi no Hito]]
    - [Memories](https://subscene.com/subtitles/planetarian-hoshi-no-hito/arabic/1543484) #Subscene 
@@ -434,15 +434,15 @@
    - [3asq Upload Team](https://nyaa.iss.ink//view/1178076) #nyaa 
   ---
 [[Kurenai no Buta]]
-   - [Omar Hidan](https://nya.iss.one/view/973357)
-   - [3asq Upload Team](https://nyaa.iss.ink//view/1178076)
+   - [Omar Hidan](https://nya.iss.one/view/973357) #Softsub/nyaa 
+   - [3asq Upload Team](https://nyaa.iss.ink//view/1178076) #Softsub/nyaa 
    - [7b7b](https://subscene.com/subtitles/porco-rosso-kurenai-no-buta/arabic/1996894) #Subscene 
   ---
 [[Mononoke Hime]]
    - [SBO-SoFT](https://subscene.com/subtitles/princess-mononoke-mononoke-hime/arabic/158620) #Subscene 
    - [AWF-Fansub](https://subscene.com/subtitles/princess-mononoke-mononoke-hime/arabic/860109) #Subscene 
-   - [Omar Hidan](https://nya.iss.one/view/973357)
-   - [3asq Upload Team](https://nyaa.iss.ink//view/1178076)
+   - [Omar Hidan](https://nya.iss.one/view/973357) #Softsub/nyaa
+   - [3asq Upload Team](https://nyaa.iss.ink//view/1178076) #Softsub/nyaa
    - ---
 [[Promare]]
    - [Mugi-nZk](https://subscene.com/subtitles/promare/arabic/2140119) #Subscene 
@@ -454,8 +454,8 @@
    - [Yaha-Sub & Zero-Kon](https://subscene.com/subtitles/psycho-pass-movie/arabic/1193187) #Subscene 
   ---
 [[Psycho-Pass - Sinners of the System Case1 - Tsumi to Batsu]]
-   - [Next Generation Team](https://next-generation-team1.blogspot.com/2021/01/psycho-pass-sinners-of-system-case1.html)
-   - [Psycho-Pass: Sinners of the System Case.1 - Tsumi to Bachi - AnteikuSubs](https://anteikusubs.blogspot.com/2019/11/Psycho-PassSinnersoftheSystemCase1-TsumitoBachi.html)
+   - [Next Generation Team](https://next-generation-team1.blogspot.com/2021/01/psycho-pass-sinners-of-system-case1.html) #Softsub/drive 
+   - [AnteikuSubs](https://anteikusubs.blogspot.com/2019/11/Psycho-PassSinnersoftheSystemCase1-TsumitoBachi.html)
   ---
 [[Psycho-Pass - Sinners of the System Case2 - First Guardian]]
    - [AnteikuSubs](https://anteikusubs.blogspot.com/2019/11/Psycho-Pass-Sinners-of-the-System-Case-2-First-Guardian.html?m=1)
