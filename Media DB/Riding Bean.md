@@ -1,5 +1,5 @@
 ---
-type: "series"
+subType: "ova"
 title: "Riding Bean"
 englishTitle: "Riding Bean"
 year: 1989
@@ -13,12 +13,13 @@ studios:
   - "Artmic"
 episodes: 1
 duration: "46 min"
-onlineRating: 7.06
+onlineRating: 7.07
 poster: "https://cdn.myanimelist.net/images/anime/1310/112637.jpg"
 released: true
 airedFrom: "2/22/1989"
 airedTo: "1/1/1970"
 airing: false
+type: "series"
 watched: false
 lastWatched: ""
 personalRating: 0

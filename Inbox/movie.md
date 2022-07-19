@@ -430,8 +430,8 @@
    - [Memories](https://subscene.com/subtitles/planetarian-hoshi-no-hito/arabic/1543484) #Subscene 
   ---
 [[Gake no Ue no Ponyo]]
-   - [MSOMS-FANSUB](https://www.msoms-anime.net/showthread.php?t=178964&p=3336063&viewfull=1#post3336063) #nyaa 
-   - [3asq Upload Team](https://nyaa.iss.ink//view/1178076) #nyaa 
+   - [MSOMS-FANSUB](https://www.msoms-anime.net/showthread.php?t=178964&p=3336063&viewfull=1#post3336063) #Softsub/nyaa  
+   - [3asq Upload Team](https://nyaa.iss.ink//view/1178076) #Softsub/nyaa  
   ---
 [[Kurenai no Buta]]
    - [Omar Hidan](https://nya.iss.one/view/973357) #Softsub/nyaa 
@@ -537,47 +537,47 @@
   ---
 [[Sword Art Online Movie - Ordinal Scale]]
    - [Mugi & Zero-Kon](https://subscene.com/subtitles/sword-art-online-the-movie-ordinal-scale/arabic/1849423) #Subscene 
-   - [AmmarAnimeSub](https://www.mediafire.com/folder/w3k9s9eofflup/Sword+Art+Online+Movie+-+Ordinal+Scale)
+   - [AmmarAnimeSub](https://www.mediafire.com/folder/w3k9s9eofflup/Sword+Art+Online+Movie+-+Ordinal+Scale) #sub/mediafire 
   ---
 [[Stranger - Mukou Hadan]]
    - [VBS & mohbaboo](https://subscene.com/subtitles/sword-of-the-stranger/arabic/1435412) #Subscene 
-   - [mohbaboo](http://mohbaboo-subs.win/movie-mukou-hadan_1/)
-   - [Devils-fansubs](https://devil-fansubs.blogspot.com/2013/09/sword-of-stranger-bd.html)
+   - [mohbaboo](http://mohbaboo-subs.win/movie-mukou-hadan_1/) #Softsub/Mega 
+   - [Devils-fansubs](https://devil-fansubs.blogspot.com/2013/09/sword-of-stranger-bd.html) #Subscene 
   ---
 [[Tailenders]]
    - [KenjoWorld](https://subscene.com/subtitles/tailenders/arabic/1474229) #Subscene 
    - [mohbaboo](https://subscene.com/subtitles/tailenders/arabic/1211471) #Subscene 
   ---
 [[Ged Senki]]
-   - [Omar Hidan](https://nya.iss.one/view/973357)
+   - [Omar Hidan](https://nya.iss.one/view/973357) #Softsub/nyaa 
    - [Kudo-subs](https://subscene.com/subtitles/tales-from-earthsea-gedo-senki/arabic/860177) #Subscene 
    - [Pirates & Behelit](https://subscene.com/subtitles/tales-from-earthsea-gedo-senki/arabic/1387831) #Subscene 
   ---
 [[Tamako Love Story]]
-   - [Sawada-Sub](https://sawada-sub.blogspot.com/2021/07/tamako-love-story.html)
+   - [Sawada-Sub](https://sawada-sub.blogspot.com/2021/07/tamako-love-story.html) #sub/Mega 
    - [SilverBoy & Stardima](https://subscene.com/subtitles/tamako-love-story/arabic/2106358) #Subscene 
   ---
 [[Tekkon Kinkreet]]
-   - [Scarlet Team](https://www.scarlet-tm.com/2018/07/tekkon-kinkret-movie-bluray.html)
+   - [Scarlet Team](https://www.scarlet-tm.com/2018/07/tekkon-kinkret-movie-bluray.html) #Softsub/drive 
   ---
 [[Kokoro ga Sakebitagatterunda]]
-   - [Rhythm-Sub](https://rhythm-sub.com/2020/01/11/kokoro-ga-sakebitagatterunda/)
+   - [Rhythm-Sub](https://rhythm-sub.com/2020/01/11/kokoro-ga-sakebitagatterunda/) #Softsub/torrent 
   ---
 [[Bakemono no Ko]]
-   - [Mirai-Subs](https://docs.google.com/spreadsheets/d/1Yp5kuGJyQIDLDiA8SnYu67lOls3mmCqdx0TuFVNBykQ/edit#gid=0)
+   - [Mirai-Subs](https://docs.google.com/spreadsheets/d/1Yp5kuGJyQIDLDiA8SnYu67lOls3mmCqdx0TuFVNBykQ/edit#gid=0) #sub/Mega 
    - [hoseki](https://subscene.com/subtitles/the-boy-and-the-beast/arabic/1350445) #Subscene 
   ---
 [[Hana to Alice - Satsujin Jiken]]
-   - [Mirai-Subs](https://docs.google.com/spreadsheets/d/1Yp5kuGJyQIDLDiA8SnYu67lOls3mmCqdx0TuFVNBykQ/edit#gid=0)
+   - [Mirai-Subs](https://docs.google.com/spreadsheets/d/1Yp5kuGJyQIDLDiA8SnYu67lOls3mmCqdx0TuFVNBykQ/edit#gid=0) #sub/Mega 
    - [mezzo-subs](https://subscene.com/subtitles/hana-to-alice-satsujin-jiken/arabic/1194624) #Subscene 
   ---
 [[Neko no Ongaeshi]]
-   - [Grace](https://gracefulsubs.wordpress.com/2019/05/12/neko-no-ongaeshi/)
-   - [alkendy](https://alkendy.net/archives/9451)
+   - [Grace](https://gracefulsubs.wordpress.com/2019/05/12/neko-no-ongaeshi/) #sub/drive 
+   - [alkendy](https://alkendy.net/archives/9451) #sub/Mega 
   ---
 [[Suzumiya Haruhi no Shoushitsu]]
    - [hoseki](https://subscene.com/subtitles/the-disappearance-of-haruhi-suzumiya-suzumiya-haruhi-no-shshitsu/arabic/1864562) #Subscene 
-   - [Red Team](https://red0team.wordpress.com/2011/03/01/the-disappearance-of-haruhi-suzumiya-hd/)
+   - [Red Team](https://red0team.wordpress.com/2011/03/01/the-disappearance-of-haruhi-suzumiya-hd/) #sub/onedrive 
   ---
 [[Kara no Kyoukai Movie 1 - Fukan Fuukei]]
    - [mohbaboo & Zero-Kon](https://subscene.com/subtitles/kara-no-kyoukai-1-fukan-fuukei/arabic/2369759) #Subscene 
@@ -615,61 +615,61 @@
    - [AmerEdo & Zero-Kon](https://subscene.com/subtitles/kara-no-kyoukai-mirai-fukuin-extra-chorus/arabic/2384794) #Subscene 
   ---
 [[Kotonoha no Niwa]]
-   - [mohbaboo-subs](http://mohbaboo-subs.win/kotonoha-no-niwa_7/)
-   - [CROWsubs](https://crowsub.blogspot.com/2016/09/the-garden-of-words.html)
+   - [mohbaboo-subs](http://mohbaboo-subs.win/kotonoha-no-niwa_7/) #Subscene 
+   - [CROWsubs](https://crowsub.blogspot.com/2016/09/the-garden-of-words.html) #sub/top4top 
    - [Dac-Fansub](https://subscene.com/subtitles/the-garden-of-words-koto-no-ha-no-niwa/arabic/754660) #Subscene 
-   - [Assassin Sub](https://ddl.assassinssub.org/Movies/04%20Kotonoha%20No%20Niwa/Subtitles%20&%20Fonts/)
+   - [Assassin Sub](https://ddl.assassinssub.org/Movies/04%20Kotonoha%20No%20Niwa/Subtitles%20&%20Fonts/) #sub/DDL 
   ---
 [[Toki wo Kakeru Shoujo]]
-   - [mohbaboo-subs](http://mohbaboo-subs.win/toki-o-kakeru-shoujo_1/)
+   - [mohbaboo-subs](http://mohbaboo-subs.win/toki-o-kakeru-shoujo_1/) #Subscene 
    - [Nana & Sajo](https://subscene.com/subtitles/the-girl-who-leapt-through-time-toki-wo-kakeru-shjo/arabic/319748) #Subscene 
   ---
 [[Mahouka Koukou no Rettousei Movie - Hoshi wo Yobu Shoujo]]
-   - [SadLover Subs](https://sadlover-sub.blogspot.com/2018/05/mahouka-koukou-no-rettousei-movie-hoshi.html) 
+   - [SadLover Subs](https://sadlover-sub.blogspot.com/2018/05/mahouka-koukou-no-rettousei-movie-hoshi.html) #Softsub/Mega  
   ---
 [[Suki ni Naru Sono Shunkan wo - Kokuhaku Jikkou Iinkai]]
    - [Caffeine World](https://subscene.com/subtitles/suki-ni-naru-sono-shunkan-wo-kokuhaku-jikkou-iinkai/arabic/1697923) #Subscene 
    - [Whisperteam](https://subscene.com/subtitles/suki-ni-naru-sono-shunkan-wo-kokuhaku-jikkou-iinkai/arabic/1574506) #Subscene 
   ---
 [[Yoru wa Mijikashi Arukeyo Otome]]
-   - [Mezzo](https://mezzosubs.blogspot.com/2018/10/yoru-wa-mijikashi-arukeyo-otome.html)
+   - [Mezzo](https://mezzosubs.blogspot.com/2018/10/yoru-wa-mijikashi-arukeyo-otome.html) #Softsub/Mega 
   ---
 [[Kumo no Mukou Yakusoku no Basho]]
-   - [Assassin Sub](https://ddl.assassinssub.org/Movies/15%20Kumo%20No%20Mukou,%20Yakusoku%20No%20Basho/Subtitles%20&%20Fonts/)
+   - [Assassin Sub](https://ddl.assassinssub.org/Movies/15%20Kumo%20No%20Mukou,%20Yakusoku%20No%20Basho/Subtitles%20&%20Fonts/) #sub/DDL 
   ---
 [[Toaru Hikuushi e no Tsuioku]]
-   - [MSOMS-ANIME](https://nyaa.iss.ink/view/324695) #nyaa 
+   - [MSOMS-ANIME](https://nyaa.iss.ink/view/324695) #Softsub/nyaa  
    - [Zero-Kon & Lovely-Dream & Dantalin](https://subscene.com/subtitles/the-princess-and-the-pilot-to-aru-hikoushi-e-no-tsuioku/arabic/1719280)  #Subscene 
   ---
 [[Karigurashi no Arrietty]]
-   - [MSOMS-ANIME](https://nyaa.iss.ink/view/742047) #nyaa 
+   - [MSOMS-ANIME](https://nyaa.iss.ink/view/742047) #Softsub/nyaa  
   ---
 [[The Sky Crawlers]]
-   - [devil-fansubs](https://devil-fansubs.blogspot.com/2014/01/the-sky-crawlers.html)
+   - [devil-fansubs](https://devil-fansubs.blogspot.com/2014/01/the-sky-crawlers.html) #Subscene 
   ---
 [[Kaze Tachinu]]
-   - [Omar Hidan](https://nya.iss.one/view/973357) #nyaa 
-   - [hoseki](https://mega.nz/folder/vNdThJQL#94JQrgsOX5lEsWjayfekPg/folder/mcdlVDCb) #Mega
+   - [Omar Hidan](https://nya.iss.one/view/973357) #Softsub/nyaa  
+   - [hoseki](https://mega.nz/folder/vNdThJQL#94JQrgsOX5lEsWjayfekPg/folder/mcdlVDCb) #Softsub/Mega 
    - [Phoenix-Subs](https://subscene.com/subtitles/the-wind-rises-kaze-tachinu/arabic/2326160) #Subscene 
   ---
 [[Tiger  Bunny Movie 1 - The Beginning]]
-   - [NETFLIX](https://subscene.com/subtitles/gekij-ban-tiger-and-bunny-the-beginning/arabic/2737973)
+   - [NETFLIX](https://subscene.com/subtitles/gekij-ban-tiger-and-bunny-the-beginning/arabic/2737973) #Subscene 
   ---
 [[Tiger  Bunny Movie 2 - The Rising]]
-   - [NETFLIX](https://subscene.com/subtitles/tiger-and-bunny-the-movie-the-rising/arabic/2737975)
+   - [NETFLIX](https://subscene.com/subtitles/tiger-and-bunny-the-movie-the-rising/arabic/2737975) #Subscene 
   ---
 [[Eve no Jikan (Movie)]]
-   - [Blade](https://subscene.com/subtitles/time-of-eve-eve-no-jikan/arabic/1866656)
+   - [Blade](https://subscene.com/subtitles/time-of-eve-eve-no-jikan/arabic/1866656) #Subscene 
   ---
 [[Tobira wo Akete]]
-   - [AZ](https://www.mediafire.com/file/llfuq9ui263y6g6/%255BAZ%255D_Tobira_wo_Akete.mkv/file)
+   - [AZ](https://www.mediafire.com/file/llfuq9ui263y6g6/%255BAZ%255D_Tobira_wo_Akete.mkv/file) #sub/mediafire 
   ---
 [[Tokyo Godfathers]]
-   - [Tokyo Godfathers (2003)](https://crowsub.blogspot.com/2020/10/tokyo-godfathers-2003.html) #Mega 
-   - [Devil-fansub](https://mega.nz/file/AQ8FwboC#EblDuzmDUwo5pVxwM72J2PhZp1Q_9umqcyC_Yxdjdqc) #Mega 
+   - [Tokyo Godfathers (2003)](https://crowsub.blogspot.com/2020/10/tokyo-godfathers-2003.html) #Softsub/Mega  
+   - [Devil-fansub](https://mega.nz/file/AQ8FwboC#EblDuzmDUwo5pVxwM72J2PhZp1Q_9umqcyC_Yxdjdqc) #Softsub/Mega  
   ---
 [[Terra e]]
-   - [wal9](https://masadorasub.wordpress.com/2021/07/29/%D9%81%D9%84%D9%85-%D9%86%D8%AD%D9%88-%D8%AA%D9%8A%D8%B1%D8%A7-toward-the-terra-%D9%85%D8%AA%D8%B1%D8%AC%D9%85/) #drive
+   - [wal9](https://masadorasub.wordpress.com/2021/07/29/%D9%81%D9%84%D9%85-%D9%86%D8%AD%D9%88-%D8%AA%D9%8A%D8%B1%D8%A7-toward-the-terra-%D9%85%D8%AA%D8%B1%D8%AC%D9%85/) #sub/drive 
   ---
 [[Trinity Seven Movie 1 - Eternity Library to Alchemic Girl]]
    - [SS3 & Zero-Kon](https://subscene.com/subtitles/trinity-seven-movie-eternity-library-to-alchemic-girl/arabic/1721761) #Subscene 
@@ -679,23 +679,23 @@
    - [RISE](https://subscene.com/subtitles/typhoon-noruda/arabic/1442913) #Subscene 
   ---
 [[Un-Go - Inga-ron]]
-   - [RiMo](https://subscene.com/subtitles/un-go-episode0-ingaron/arabic/1710600)
+   - [RiMo](https://subscene.com/subtitles/un-go-episode0-ingaron/arabic/1710600) #Subscene 
   ---
 [[Vampire Hunter D]]
-   - [azoozkiller787](https://azoozkiller787.blogspot.com/2020/10/vampire-hunter-d-1985.html)
+   - [azoozkiller787](https://azoozkiller787.blogspot.com/2020/10/vampire-hunter-d-1985.html) #sub/Mega 
    - [muhammed ayzen](https://subscene.com/subtitles/vampire-hunter-d/arabic/2249944) #Subscene 
   ---
 [[Vampire Hunter D (2000)]]
    - [ayzen sama](https://subscene.com/subtitles/vampire-hunter-d-bloodlust-vampaia-hant-d/arabic/683844) #Subscene 
-   - [Athbul-Khaya](https://drive.google.com/drive/folders/1Xup4DTkSVcT3AdLs6fqo9dGEYHcy_31n) #drive 
+   - [Athbul-Khaya](https://drive.google.com/drive/folders/1Xup4DTkSVcT3AdLs6fqo9dGEYHcy_31n) #sub/drive  
   ---
 [[Venus Senki]]
    - [muhammed ayzen](https://subscene.com/subtitles/venus-wars-venus-senki/arabic/1963127) #Subscene 
   ---
 [[Violet Evergarden Gaiden - Eien to Jidou Shuki Ningyou]]
-   - [Athbul-Khaya](https://drive.google.com/drive/folders/1P2uWWTsDf8B77h8iVgVQ1Dvtt0RkI84b)
+   - [Athbul-Khaya](https://drive.google.com/drive/folders/1P2uWWTsDf8B77h8iVgVQ1Dvtt0RkI84b) #sub/drive 
    - [Zero-Kon](https://subscene.com/subtitles/violet-evergarden-eternity-and-the-auto-memories-doll/arabic/2188925) #Subscene 
-   - [Sawada-Sub](http://web.archive.org/web/20200728124420/http://sawada-sub.blogspot.com:80/2020/03/violet-evergarden-gaiden-eien-to-jidou.html) #Mega 
+   - [Sawada-Sub](http://web.archive.org/web/20200728124420/http://sawada-sub.blogspot.com:80/2020/03/violet-evergarden-gaiden-eien-to-jidou.html) #sub/Mega  
   ---
 [[Violet Evergarden Movie]]
    - [Athbul-Khaya](https://drive.google.com/drive/folders/1fyeS8d2jJXiKfCQgJV0E3NhFNvb4Z0oT) #sub/drive 
@@ -715,7 +715,7 @@
    - [Omar Hidan](https://nya.iss.one/view/973357) #Softsub/nyaa 
   ---
 [[Mimi wo Sumaseba]]
-   - [Amer - Edo San](https://nyaa.iss.ink/view/861958) #nyaa 
+   - [Amer - Edo San](https://nyaa.iss.ink/view/861958) #Softsub/nyaa  
    - [Amer - Edo San](https://drive.google.com/drive/folders/1rE7Wk6eNxcqVSLfD-q5WgoQVgvxmts5M) #sub/drive 
   ---
 [[Youjuu Toshi]]

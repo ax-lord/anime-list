@@ -1,5 +1,5 @@
 ---
-type: "series"
+subType: "ova"
 title: "Tenshi no Tamago"
 englishTitle: "Angel's Egg"
 year: 1985
@@ -20,6 +20,7 @@ released: true
 airedFrom: "12/22/1985"
 airedTo: "1/1/1970"
 airing: false
+type: "series"
 watched: false
 lastWatched: ""
 personalRating: 0
