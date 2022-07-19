@@ -455,33 +455,33 @@
   ---
 [[Psycho-Pass - Sinners of the System Case1 - Tsumi to Batsu]]
    - [Next Generation Team](https://next-generation-team1.blogspot.com/2021/01/psycho-pass-sinners-of-system-case1.html) #Softsub/drive 
-   - [AnteikuSubs](https://anteikusubs.blogspot.com/2019/11/Psycho-PassSinnersoftheSystemCase1-TsumitoBachi.html)
+   - [AnteikuSubs](https://anteikusubs.blogspot.com/2019/11/Psycho-PassSinnersoftheSystemCase1-TsumitoBachi.html) #Softsub/Mega 
   ---
 [[Psycho-Pass - Sinners of the System Case2 - First Guardian]]
-   - [AnteikuSubs](https://anteikusubs.blogspot.com/2019/11/Psycho-Pass-Sinners-of-the-System-Case-2-First-Guardian.html?m=1)
+   - [AnteikuSubs](https://anteikusubs.blogspot.com/2019/11/Psycho-Pass-Sinners-of-the-System-Case-2-First-Guardian.html?m=1) #sub/Mega 
   ---
 [[Psycho-Pass - Sinners of the System Case3 - Onshuu no Kanata ni＿＿]]
-   - [AnteikuSubs](https://anteikusubs.blogspot.com/2019/11/Psycho-Pass-Sinners-of-the-System-Case-3-Onshuu-no-Kanata-ni.html?m=1)
+   - [AnteikuSubs](https://anteikusubs.blogspot.com/2019/11/Psycho-Pass-Sinners-of-the-System-Case-3-Onshuu-no-Kanata-ni.html?m=1) #Softsub/Mega 
   ---
 [[Mahou Shoujo Madoka★Magica Movie 1 - Hajimari no Monogatari]]
-   - [Rhythm-Sub](https://rhythm-sub.com/2020/01/16/mahou-shoujo-madoka%e2%98%85magica-movie-1-hajimari-no-monogatari/)
+   - [Rhythm-Sub](https://rhythm-sub.com/2020/01/16/mahou-shoujo-madoka%e2%98%85magica-movie-1-hajimari-no-monogatari/) #Softsub/torrent 
   ---
 [[Mahou Shoujo Madoka★Magica Movie 2 - Eien no Monogatari]]
-   - [Rhythm-Sub](https://rhythm-sub.com/2020/01/06/mahou-shoujo-madoka%e2%98%85magica-movie-2-eien-no-monogatari/)
+   - [Rhythm-Sub](https://rhythm-sub.com/2020/01/06/mahou-shoujo-madoka%e2%98%85magica-movie-2-eien-no-monogatari/) #Softsub/torrent 
   ---
 [[Mahou Shoujo Madoka★Magica Movie 3 - Hangyaku no Monogatari]]
-   - [Rhythm-Sub](https://rhythm-sub.com/2020/01/06/mahou-shoujo-madoka%e2%98%85magica-movie-3-hangyaku-no-monogatari/)
-   - [Mezzo](https://mezzosubs.blogspot.com/2020/01/mahou-shoujo-madokamagica-hangyaku-no.html)
+   - [Rhythm-Sub](https://rhythm-sub.com/2020/01/06/mahou-shoujo-madoka%e2%98%85magica-movie-3-hangyaku-no-monogatari/) #Softsub/torrent 
+   - [Mezzo](https://mezzosubs.blogspot.com/2020/01/mahou-shoujo-madokamagica-hangyaku-no.html) #sub/Mega 
   ---
 [[Seishun Buta Yarou wa Yumemiru Shoujo no Yume wo Minai]]
-   - [Es-Bouz](https://es-bouz.blogspot.com/2020/01/aobuta-movie.html)
+   - [Es-Bouz](https://es-bouz.blogspot.com/2020/01/aobuta-movie.html) #sub/Mega 
    - [sawada-sub](https://subscene.com/subtitles/rascal-does-not-dream-of-a-dreaming-girl-seishun-buta-yarou-wa-yumemiru-shoujo-no-yume-wo-minai/arabic/2092604) #Subscene 
   ---
 [[Redline]]
    - [Alkendy](https://subscene.com/subtitles/redline-2009/arabic/2181017) #Subscene 
   ---
 [[Kimi to Nami ni Noretara]]
-   - [WinoXA Sub](https://www.winoxa.info/2020/01/kimi-to-nami-ni-noretara-ride-your-wave.html)
+   - [WinoXA Sub](https://www.winoxa.info/2020/01/kimi-to-nami-ni-noretara-ride-your-wave.html) #sub/drive 
   ---
 [[Riding Bean]]
    - [muhammed ayzen](https://subscene.com/subtitles/riding-bean/arabic/1973098) #Subscene 
@@ -489,10 +489,10 @@
   ---
 [[Ryo]]
    - [kalaacom](https://subscene.com/subtitles/anime-mirai-ryo/arabic/2212504) #Subscene 
-   - [Dac-Fansubs](http://www.dacsubs.com/2013/07/blu-ray-ryo.html)
+   - [Dac-Fansubs](http://www.dacsubs.com/2013/07/blu-ray-ryo.html) #Softsub/nyaa 
   ---
 [[Saenai Heroine no Sodatekata Fine]]
-   - [WinoXa](https://www.winoxa.info/2020/11/saenai-heroine-no-sodatekata-fine.html)
+   - [WinoXa](https://www.winoxa.info/2020/11/saenai-heroine-no-sodatekata-fine.html) #sub/DDL 
   ---
 [[Youjo Senki Movie]]
    - [Nigel](https://subscene.com/subtitles/youjo-senki-movie-rus-sub/arabic/2045531) #Subscene 
@@ -502,29 +502,29 @@
    - [AnimeStorm](https://subscene.com/subtitles/selector-destructed-wixoss-movie/arabic/1843632) #Subscene 
   ---
 [[Slam Dunk (Movie)]]
-   - [Son_Goku](https://nyaa.iss.ink/view/1278458) #nyaa 
+   - [Son_Goku](https://nyaa.iss.ink/view/1278458) #Softsub/nyaa  
   ---
 [[Slam Dunk - Zenkoku Seiha Da! - Sakuragi Hanamichi]]
-   - [Son_Goku](https://nyaa.iss.ink/view/1278458) #nyaa  
+   - [Son_Goku](https://nyaa.iss.ink/view/1278458) #Softsub/nyaa   
   ---
 [[Slam Dunk - Shouhoku Saidai no Kiki! Moero Sakuragi Hanamichi]]
-   - [Son_Goku](https://nyaa.iss.ink/view/1278458) #nyaa 
+   - [Son_Goku](https://nyaa.iss.ink/view/1278458) #Softsub/nyaa  
   ---
 [[Slam Dunk - Hoero Basketman-damashii! Hanamichi to Rukawa no Atsuki Natsu]]
-   - [Son_Goku](https://nyaa.iss.ink/view/1278458)  #nyaa 
+   - [Son_Goku](https://nyaa.iss.ink/view/1278458)  #Softsub/nyaa  
   ---
 [[Hibike! Euphonium Movie 1 - Kitauji Koukou Suisougaku-bu e Youkoso]]
-   - [Rhythm-Sub](https://rhythm-sub.com/2020/01/02/hibike-euphonium-movie-1-kitauji-koukou-suisougaku-bu-e-youkoso/) #nyaa 
+   - [Rhythm-Sub](https://rhythm-sub.com/2020/01/02/hibike-euphonium-movie-1-kitauji-koukou-suisougaku-bu-e-youkoso/) #Softsub/nyaa 
   ---
 [[Hibike! Euphonium Movie 2 - Todoketai Melody]]
    - [Mohammad_Subs](https://subscene.com/subtitles/gekijouban-hibike-euphonium-todoketai-melody/arabic/1816714) #Subscene 
   ---
 [[Hibike! Euphonium Movie 3 - Chikai no Finale]]
    - [Sawada-Sub](https://subscene.com/subtitles/sound-euphonium-the-movie-finale-oath/arabic/2379329) #Subscene 
-   - [Sawada-Sub](http://sawada-sub.blogspot.com/2020/03/hibike-euphonium-movie-3-chikai-no.html)
+   - [Sawada-Sub](http://sawada-sub.blogspot.com/2020/03/hibike-euphonium-movie-3-chikai-no.html) #sub/Mega 
   ---
 [[Sen to Chihiro no Kamikakushi]]
-   - [VEGETA](https://nyaa.iss.ink/view/450045) #nyaa 
+   - [VEGETA](https://nyaa.iss.ink/view/450045) #Softsub/nyaa  
   ---
 [[Steins;Gate Movie - Fuka Ryouiki no Déjà vu]]
    - [KIYOSHI](https://subscene.com/subtitles/steinsgate-the-movie-loading-area-of-dj-vu/arabic/1304589) #Subscene 
@@ -532,8 +532,8 @@
    - [Dantalin-sub & M-EnC](https://subscene.com/subtitles/steinsgate-the-movie-loading-area-of-dj-vu/arabic/2304814) #Subscene 
   ---
 [[Summer Ghost]]
-   - [LUNATIC FANSUB](https://lunaticfs.blogspot.com/2022/04/summer-ghost-2021-blu-ray.html)
-   - [Athbul-Khayal](https://drive.google.com/drive/folders/1rdOLbPBTb4Y_GYWPYfXUy9UOv6au7h0l)
+   - [LUNATIC FANSUB](https://lunaticfs.blogspot.com/2022/04/summer-ghost-2021-blu-ray.html) #sub/Mega 
+   - [Athbul-Khayal](https://drive.google.com/drive/folders/1rdOLbPBTb4Y_GYWPYfXUy9UOv6au7h0l) #sub/drive 
   ---
 [[Sword Art Online Movie - Ordinal Scale]]
    - [Mugi & Zero-Kon](https://subscene.com/subtitles/sword-art-online-the-movie-ordinal-scale/arabic/1849423) #Subscene 
